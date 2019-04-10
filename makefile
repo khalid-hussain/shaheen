@@ -1,4 +1,4 @@
-default:
+concatenate:
 	cat metadata.yaml \
 	    chap1.md \
       chap2.md \
@@ -22,4 +22,10 @@ default:
       chap20.md \
       chap21.md \
       chap22.md > content.md
-			pandoc -t latex -o output.pdf content.md
+
+
+default: concatenate
+	pandoc -t latex -o output.pdf content.md
+
+ebook: concatenate
+	pandoc -t epub -o output.epub content.md
