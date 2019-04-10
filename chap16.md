@@ -1,7 +1,7 @@
 
 # Renewed Enthusiasm
 
-(1)
+
 
 After a long time Moosa stood by the bridge of the stream, once again, across
 which the independent territory of the Frontier Falcon began. A wooden plank
@@ -113,7 +113,7 @@ gallows. He was the last drop of blood in the veins of this dead nation. He
 was our sword that was broken, he was our arm that had been chopped off, he
 was a sun that has set and now we are wandering in the dark.
 
-(2)
+
 
 Galloping of horses could be heard outside the fort. Mansoor looked at Bashir.
 Comprehending his cue, Bashir walked towards the gate.
@@ -180,7 +180,7 @@ cloth-spread. Please come!"
 
 Badr looked at Moosa and said, "Carry on. I will change my clothes and come."
 
-(3)
+
 
 After dinner, Badr Bin Mughira, Moosa, Bashir and Abu Mohsin returned to this
 room and talked for long. Moosa had reached here after a long journey and Badr
@@ -340,7 +340,7 @@ Moosa said, "If you don't mind, I would like to take Abu Mohsin along with me."
 After the morning prayer, Badr Bin Mughira and his companions were bidding
 farewell to Moosa and Abu Mohsin.
 
-(4)
+
 
 Ferdinand had laid siege on Granada. His cowardly troops repeatedly attacked
 the city but they had to retreat in the volley of arrows. However, Ferdinand
@@ -413,7 +413,7 @@ Father! Pray that the enemy does not postpone the idea of attacking us. If
 your prayer is accepted, then, this war will end today." And the Bishop prayed
 while kneeling on both knees, in front of the statue of Mary.
 
-(5)
+
 
 For the third time, Moosa was climbing the stairs of the tower when a guard
 called out, "Dust is rising on the horizon. Maybe some troops are
@@ -678,7 +678,7 @@ Badr enquired, "How is his condition now?"
 
 "There is a wound in his rib but, God-wiling, he will survive."
 
-(7)
+
 
 The injured man sat resting against an olive tree. A few soldiers stood around
 him. Seeing Badr Bin Mughira and his companions the soldiers stepped aside.
@@ -751,7 +751,7 @@ had come out of the city into the battlefield. The field was empty by dawn.
 The enemy's corpses lay at every step. The prisoners taken were around five
 thousand while the number of those killed were four times more.
 
-(8)
+
 
 The victorious army offered its Fajr prayers at the banks of the river Genil.
 On Moosa's insistence, Badr Bin Mughira performed the duty of leading the

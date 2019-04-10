@@ -1,7 +1,7 @@
 
 # One Crore
 
-(1)
+
 
 After dismissing the Prime Minister, Abu Abdullah entered the harem in a very
 perturbed condition. As he approached his wife's chamber a bondmaid
@@ -179,7 +179,7 @@ he gestured with his hand for them to do so. On observing carefully Abu
 Abdullah recognized him. This was the same Governor of the Border who had
 returned dejected a while ago from his court.
 
-(2)
+
 
 Governor of the Border was making a speech loudly:
 
@@ -288,7 +288,7 @@ should immediately get their weapons and come here. Currently, I will give
 preference to the youth. The older ones will be called when the need arises.
 Don't waste time. We have to leave immediately."
 
-(3)
+
 
 Later in the afternoon, five thousand armed volunteers stood in lines in front
 of Al-Hamra and Abu Mohsin, mounted on his horse, was inspecting them. Above
@@ -411,7 +411,7 @@ to satisfy them."
 Abu Mohsin said, "Rest assured! At the moment all they know is that you are
 with them. They don't want to think beyond that."
 
-(4)
+
 
 After Al-Zeghel's glorious victories he encamped in Malaga, reorganized his
 troops anew and before advancing towards Granada sent a message to his nephew
@@ -485,7 +485,7 @@ untraceable. We thought he would be with you but the people coming from the
 front do not confirm this notion of ours. Where is he? The people of Granada
 are very concerned for him."
 
-(5)
+
 
 After four days Granada was a scene of mourning. At dawn the people of Granada
 received the painful news of Abu Abdullah's defeat and his eventual capture at
@@ -582,7 +582,7 @@ for a large scale operation, Al-Zeghel had to be in the center. So, he
 selected Abu Mohsin for the protection of the north-western border and he
 reached Granada and got busy with the preparations.
 
-(6)
+
 
 Abu Abdullah reached Castile in the capacity of a prisoner. He was sure that
 Ferdinand would pronounce the severest punishment for him but when the guards

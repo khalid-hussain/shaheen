@@ -3,8 +3,6 @@
 
 # Father and Son
 
-(1)
-
 In the battle of Loja where mujahids like Naeem Bin Ridwan were writing the
 fate of the Muslims of Andalus with the ink of their blood, another fate was
 being written in the Royal Court of Granada.
@@ -133,8 +131,6 @@ support their chiefs. To please them even more, you can release their
 prisoners. You have merely two days to arrive to a decision. After this, you
 might never lay hands on such an opportunity. I have conceived on how to have
 Moosa arrested."
-
-(2)
 
 At night, a spacious chamber of the Al-Hamra Palace was lit by lanterns of
 silver and gold. Granada's Berber and Hispanian Muslim nobles were seated on
@@ -278,8 +274,6 @@ there is no other claimant to the Sultanate of Granada. When he's sure that
 you have taken Abul Hassan's place then he will have no objection in coming
 out of prison and serving you. Now get up. This is no time for thinking. This
 is the time to get work done."
-
-(3)
 
 The next day after the victory of Loja, when Badr Bin Mughira returned after
 chasing Ferdinand's troops, Abul Hassan called in a consultative council of
@@ -458,8 +452,6 @@ can't say how many houses have been burned and how many people have been
 killed. I am afraid this fire must have also spread to other nearby
 settlements around Granada."
 
-(4)
-
 Abul Hassan could not continue his speech for long. Every now and then his
 attention was diverted towards Al-Zeghel and Al-Zaghairi and when they were
 approaching him with heads bowed down, after talking to Sulaiman, his heart
@@ -547,8 +539,6 @@ After a while Bashir Bin Hassan entered the tent. After looking at the
 Sultan's condition he said to Al-Zeghel, "He has had a paralysis attack but
 it's not a severe one. God willing, he'll soon be fine. It seems that he has
 received a big shock."
-
-(5)
 
 After a while Al-Zeghel said to Sulaiman, "Go and take some rest but don't
 reveal this matter to anyone." Then he turned his attention towards Bashir Bin
@@ -650,8 +640,6 @@ Abdullah's control while Abul Hassan's government was in Malaga.
 The amount of grief Ferdinand had of his defeats was less than the immense
 happiness he had of Abu Abdullah's revolt and so he started preparing to
 deliver a final blow to Abul Hassan.
-
-(6)
 
 Maybe Abul Hassan would never have given up hope no matter how major a defeat
 he would have taken at the hands of the enemy. But this failure, whose reason

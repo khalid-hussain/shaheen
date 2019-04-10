@@ -1,6 +1,6 @@
 # Crime and its Punishment
 
-(1)
+
 
 The next day John Michael's maidservant brought a letter to Maria from him.
 Reading the letter she could not believe that it was written by Michael. Every
@@ -115,7 +115,7 @@ send it to him but as far as I am concerned, even if Michael worships for a
 thousand years and I witness with my own eyes that angels descend from the sky
 to offer salutations to him, even then, I will consider him to be hateful."
 
-(2)
+
 
 A month after this incident, Ferdinand had attacked Granada. After vowing not to
 return without conquering Granada, Queen Isabella and the King had entered the
@@ -181,7 +181,7 @@ Michael said, "She falls sick a lot. She needs treatment. Okay, carry on."
 When Maria's coach had travelled a distance, then, Michael said to his
 companions, "She needs a physician and I have cured a lot of patients."
 
-(3)
+
 
 Rabia and Angela were having food in a room in the upper story when suddenly
 they heard some noise coming from downstairs. Rabia was startled and said,
@@ -364,7 +364,7 @@ wait. Rabia! Rabia!!"
 
 Rabia had left.
 
-(4)
+
 
 After bidding farewell to Angela, Rabia went to the room where John Michael's
 corpse lay. His blood had thickened on the carpet. His face had become
@@ -408,7 +408,7 @@ to come up."
 The disturbed soldier could not decide his course of action. He left the room
 while staring at Rabia.
 
-(5)
+
 
 A short while after the soldier's departure, Rabia got up and left the room. She
 stood in the gallery and peeped outside. The sound of knocking was coming from
@@ -465,7 +465,7 @@ evil and you are sacrificing your life for the truth. On the Day of Judgment,
 you would be able to grab his hem and say that we both were each other's
 companions in the world."
 
-(6)
+
 
 The city's inspector, some army officers, the Bishop and some influential people
 stood around Michael's corpse.
@@ -537,7 +537,7 @@ atleast she should not be kept with ordinary criminals until a new governor is
 appointed. In the meanwhile, you can also get some instructions from the King
 regarding this girl."
 
- (7)
+ 
 
 For a week, Angela was bedridden with high fever. Whenever she gained
 consciousness, she would sit up saying, "Rabia! Rabia!" Sometimes in a fit of
@@ -604,7 +604,7 @@ the sake of a servant."
 On the insistence of the Queen, the King sent orders to the new governor not to
 delay in punishing the criminal by the court.
 
- (8)
+ 
 
 Rabia stood in front of the court. Crowds of men were gathered inside and
 outside courtroom. The jury of priests had given their verdict to the Bishop.
@@ -813,7 +813,7 @@ this they are guilty of revolting against the government and spreading hatred
 against the church. To give the police a chance to investigate, the proceedings
 of the court are adjourned till tomorrow."
 
-(9)
+
 
 Until evening, Maria kept screaming in a state of unconsciousness. When she
 gained consciousness she was lying in a small room instead of her own room. Her

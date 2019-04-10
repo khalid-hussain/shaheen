@@ -1,7 +1,7 @@
 
 # The Mujahid and the Traitor
 
-(1)
+
 
 With mixed thoughts Abu Dawood was moving towards that very court where,
 according to him, the fate of Badr Bin Mughira, and with him the fate of
@@ -51,7 +51,7 @@ from Ferdinand, when emperors and kings would be proud of eating at my table
 and when Rabia would sit on the throne as a Queen to some King, then surely
 she would realize that her father was not her enemy."
 
-(2)
+
 
 Guards stood at every entrance of the court. The warden of the court welcomed
 Abu Dawood and opened its door. On seeing Abu Dawood the attendees stood up in
@@ -116,7 +116,7 @@ cannot take my smiles away from me. I have learned to smile like this under
 the shades of swords and below the rains of arrows and it will ridicule your
 cowardice, cruelty and deception until the last moment."
 
-(3)
+
 
 The throne and crown of Granada became trivial in Abu Dawood's eyes once he
 saw this model of liberty and determination. He asked himself, "Is there such
@@ -199,7 +199,7 @@ that we spend the rest of the night here."
 
 Abu Dawood replied, "I am willing to sit with you untill the afternoon."
 
-(4)
+
 
 Badr Bin Mughira was maneuvered from complex underground pathways into a cell
 whose door was only opened on such occasion. Besides the eight soldiers
@@ -322,7 +322,7 @@ purpose."
 
 The Queen Mother said, "May God be your protector and supporter."
 
-(5)
+
 
 So far Angela was silently looking at Badr Bin Mughira. Badr Bin Mughira took
 notice of her. She nervously took a step forward and said hesitantly, "Don't
@@ -429,7 +429,7 @@ for the day when the main gate of Al-Hamra is opened for you."
 Badr Bin Mughira bid farewell and advanced towards the river bank and after a
 brief hesitation, plunged into the river.
 
-(6)
+
 
 Badr Bin Mughira sat on a rock on the other side of the river to catch his
 breath.

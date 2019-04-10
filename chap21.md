@@ -1,7 +1,7 @@
 
 # The Last Defender of Al-Hamra
 
-(1)
+
 
 The siege of Granada had entered into its seventh month. The condition of the
 city was deteriorating. The people were sick and tired of starvation. The elders
@@ -156,7 +156,7 @@ infused a new life into the people of the city. Due to the fervor and enthusiasm
 of the people, the effect of the war opposition had been suppressed to a large
 extent.
 
-(2)
+
 
 After three days of long meetings, the conditions of the treaty that Abul Qasim
 Abdulmalik was successful in finalizing with were as follows:
@@ -337,7 +337,7 @@ An immigrant from Cordova, who had gained a lot of influence in the past few
 months in the court of Granada because of his brilliance, stood up and supported
 these views.
 
-(3)
+
 
 This round of speeches continued till noon. The nobles and scholars had given
 their verdict in support of the treaty. In the end, Abul Qasim stood up and
@@ -396,7 +396,7 @@ of the River Genil and some say that after barging into the midst of Ferdinand's
 army and killing several men and getting severely wounded himself, he jumped
 into the river.  
 
- (4)
+ 
 
 The secrets of Al-Hamra could not remain hidden from the eyes of the people of
 Granada for long. The city's youth, who considered Moosa their savior, became
@@ -472,7 +472,7 @@ in their hearts for him. Instead of ruling over them with the help of the
 Christian army he immigrated to Morocco and got employed in the army of the
 Sultan.
 
-(5)
+
 
 Moosa Bin Abi Ghassan's reservations proved to be right. The treaty which the
 people of Granada thought was a message of peace and tranquility was actually a

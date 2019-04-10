@@ -3,7 +3,7 @@
 
 # New Endeavors
 
-(1)
+
 
 After the victory of Sakhra, Abul Hassan started preparing for a decisive war
 against the Christians at a massive scale. Those influential chiefs and
@@ -71,7 +71,7 @@ objectives and today when Abu Dawood left his house on receiving a message
 from Abu Abdullah, in a glance he judged that his student was engulfed in a
 new anxiety.
 
-(2)
+
 
 While getting up to show respect for his teacher, Abu Abdullah ordered a
 eunuch to shut the door. The teacher and student then sat on ebony chairs,
@@ -185,7 +185,7 @@ face emerged in front his eyes. Badr Bin Mughira said to the slave girl,
 In the evening she learned from her father that the Frontier Falcon had
 returned to his habitat.
 
-(3)
+
 
 While Ferdinand was making preparations to avenge the Frontier Falcon, he
 received the news that Sakhra had been captured by Abul Hassan. He immediately
@@ -261,7 +261,7 @@ would get a chance to capture Alhama. I will also give marching orders to the
 armies of Cordova and Seville. If we were to take a defeat at a front it
 certainly won't be Alhama's.
 
-(4)
+
 
 Spies had informed Abul Hassan that Ferdinand had left Castile with a legion
 of his troops. Alongwith this, he also got to know about the troop movement of
@@ -384,7 +384,7 @@ headquarters."
 Saying this Moosa signaled his comrades, prompted his horse and took-off. The
 soldiers saw them disappear in the clouds of dust just as they had appeared.
 
-(5)
+
 
 When Badr Bin Mughira received the news that the rest of Granada's army was
 gathering to fight a decisive battle at Loja, he decided to give a final blow
@@ -424,7 +424,7 @@ few found a safe passage to escape. By noon, the field was filled with the
 corpses of Cordova's soldiers and the remaining few troops had thrown away
 their weapons.
 
-(6)
+
 
 At Loja's front, Abul Hassan deployed thirty thousand of his troops in the
 face of Ferdinand's army of fifty thousand. For two days, Ferdinand's knights
@@ -546,7 +546,7 @@ Four of Ferdinand's knights, who came one after the other for a duel faced
 death at the hands of Naeem. After the fatality of the last knight, Ferdinand
 gave the order of an all-out attack.
 
-(7)
+
 
 By noon, when the battle was at its thickest, Mansour Bin Ahmed arrived with
 Badr's army. By afternoon, Ferdinand's army started to show signs of defeat.

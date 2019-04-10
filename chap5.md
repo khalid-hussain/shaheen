@@ -3,7 +3,7 @@
 
 # Rabia's Anxiety
 
-(1)
+
 
 When Rabia woke up in the morning, her body was aching. She also had a
 headache. Light piercing through the windows was indicating that the time to
@@ -73,7 +73,7 @@ Angela said, "Is it dangerous for us to go down the valley?"
 
 Bashir said, "There's no danger for guests here."
 
-(2)
+
 
 Rabia was extremely restless for the next two days. She wanted to caution Badr
 Bin Mughira of the approaching danger but she also knew that she won't be able
@@ -132,7 +132,7 @@ come out for walks with you."
 
 "No, no, Angela. I was only joking."
 
-(3)
+
 
 Rabia's anxiety grew by the day. Just two days were left for Friday. After
 Rabia got up and offered her Fajr prayers, she saw that Angela stood all ready
@@ -332,7 +332,7 @@ intention. I'm thankful to you. Okay, goodbye!"
 Rabia left the reins and stood aside. Badr heeled the horse and moved it into
 the stream. Looking at him, she repeatedly said, "Goodbye...goodbye!"
 
-(4)
+
 
 After leaving Rabia along the way, when Angela reached the top of the
 mountain, she saw Bashir Bin Hassan a few feet away, in front of her, coming

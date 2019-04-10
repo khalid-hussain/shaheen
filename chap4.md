@@ -146,7 +146,7 @@ Rabia asked, "Where is Father?"
 Angela replied, "He and the physician have gone to the other room to see the
 coachman. The poor soul has been injured very badly."
 
-(2)
+
 
 After three days, Rabia's headache had eased considerably but because of the
 pain in her knee, she could not walk without support. The cavalryman who had
@@ -327,7 +327,7 @@ days. Bashir, how long will it take their daughter to be able to walk?"
 
 Bashir replied, "God willing, she'll be completely healthy in a week's time."
 
-(3)
+
 
 Because of its location, this fort in which Abu Dawood was staying as a guest
 of Badr Bin Mughira, was not safe from foreign attacks. Even its boundry walls
@@ -480,7 +480,7 @@ mujahid had given an exemplary defeat to Count Santiago a few years ago. But
 she would be saddened at the claim that her father had made that their path
 was far away from the territory in which the Frontier Falcon's flew.
 
-(4)
+
 
 From the rumors that were rampant in Castile, about the Frontier Falcon, she
 imagined him to be a dreadful, elderly-aged man. But he turned out to be quite
@@ -604,7 +604,7 @@ After sulking for a bit, Angela, too, was laughing as a bewildered Maria said,
 The next day, praising Bashir Bin Hassan in front of her husband, Maria was
 saying, "This physician is indeed very competent."
 
-(5)
+
 
 The fort was situated at an elevation. Its boundary was as high as the height
 of two men. There were houses built along its gated wall. Its lower levels had

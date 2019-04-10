@@ -3,7 +3,7 @@
 
 # Realization of Rabia's Dream
 
-(1)
+
 
 Badr Bin Mughira and Bashir Bin Hassan spent most part of Friday in Abu
 Dawood's company. By talking to them Abu Dawood was satisfied that they would
@@ -153,7 +153,7 @@ Maria and said, "If they get extinguished, then, light them up immediately. I
 have more torches in my room. When these finish, replace them with new ones."
 Saying this Abu Dawood left the room.
 
-(2)
+
 
 At the time of the isha prayers, Badr Bin Mughira, the King of Granada's
 brother, Al-Zeghel and two renowned commanders of Granada's army, Moosa and
@@ -289,7 +289,7 @@ ran out of the room.
 
 Al-Zeghel laughed and said, "Seldom does a good scholar prove to be a good warrior."
 
-(3)
+
 
 After covering a distance, Abu Dawood started to ponder and his speed slowed
 down. Badr Bin Mughira's statements showed that the destruction of his
@@ -332,7 +332,7 @@ Please hurry up. Angela is bleeding."
 
 Abu Dawood got up and went out running.
 
-(4)
+
 
 After a while Abu Dawood entered the room with Badr Bin Mughira and Bashir Bin
 Hassan. Bashir took a cursory glance at Angela and Maria, then, carried each
@@ -430,7 +430,7 @@ attention to Bashir and said, "Let me go and comfort the guests."
 Bashir said, "I'm almost done too. Now all that needs to be done is to give
 her the medicine."
 
-(5)
+
 
 While leaving the room Badr Bin Mughira stopped near Rabia's bed and
 whispered, "Today victory is the realization of a chaste lady's dream. If you
@@ -601,7 +601,7 @@ He was saying that 'Thank God that you will have to stay here a few more days.'
 
 "You liar!" Angela said and burst into a laughter.
 
-(6)
+
 
 Al-Zeghel, Moosa and Al-Zeghairi were amazed at Badr Bin Mughira's
 preparedness after seeing the map of the battlefield in the light of the
@@ -699,7 +699,7 @@ when Bashir Bin Hassan got to know about the incident he appeared perplexed
 for a while. However, Abu Dawood opened the topic with him and cleared all his
 doubts.
 
-(7)
+
 
 Badr Bin Mughira gathered all the prisoners in a narrow valley leaving a guard
 of his archers around them. Leaving a group of horsemen who were busy in
