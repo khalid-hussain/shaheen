@@ -1,12 +1,19 @@
 ---
-author: Naseem Hijazi
-title: Shaheen
-date: 10 April 2019
-documentclass: memoir
-classoption:
-  - oneside
-  - ebook
-toc: true
-fontfamily: sourcesanspro
-fontfamilyoptions: default
+title:
+  - type: main
+    text: Shaheen
+  - type: subtitle
+    text: Granada, Andalus — 1492
+creator:
+  - role: author
+    text: Naseem Hijazi
+  - role: translator
+    text: N.S. Akhtar
+  - role: editor
+    text: Mohammad Khalid Hussain
+publisher: Granada Publications
+date: 2019
+lang: en
+description: This is an English translation of the famous historical novel _Shaheen_, written in Urdu by Naseem Hijazi. It details the situation of the Muslims in Granada in 1492 when they were about to be expelled from Spain.
+page-progression-direction: ltr
 ---
