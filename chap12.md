@@ -1,8 +1,6 @@
 
 # The Man in Black
 
-
-
 The rumor of Badr Bin Mughira's assassination spread in the length and breadth
 of Andalus like wildfire. It was Abu Abdullah's wish for this news not spread
 among the people of Granada but Abu Dawood advised him that this news would
@@ -64,8 +62,6 @@ Abu Dawood replied, "If you so command, I can dispatch this reply."
 
 "Sure! But write it in such a way that the King should not think that I am a
 coward. I only want to be cautious."
-
-
 
 Abul Hassan had become paralyzed and blind. On the insistence of the emirs he
 nominated his brother, Al-Zeghel, as his successor. Ferdinand left Castile
@@ -164,8 +160,6 @@ the attackers was the very same man-in-black whom the Christian general
 eagerly wanted to capture alive and who had brought him into these perilous
 regions. About two thousand Christians fled and hid in the forest while the
 remainder of the army surrendered after putting up a brief resistance.
-
-
 
 After posting Al-Zaghairi for Malaga's protection, Al-Zeghel along with five
 thousand warriors kept retreating after fighting defensively against the
@@ -309,8 +303,6 @@ towards the forest while the rest threw down their arms.
 The prisoners also comprised of about two thousand of Ferdinand's knights and
 his army's high ranking officers.
 
-
-
 Abu Abdullah ultimately set out for Malaga. He had come to know that Al-Zeghel
 had left Malaga and taken to the mountains and only a small army was
 protecting Malaga. Besides this, he consoled in the fact that even if he is
@@ -444,8 +436,6 @@ donned the attire of a Moroccan merchant."
 
 Abu Abdullah dismissed the warden and after contemplating alone for a while
 entered the chamber where the emirs had gathered.
-
-
 
 Abu Abdullah's comrades were the type of people, having a defeated type of
 mentality, who had tried to carve out a future for themselves with the

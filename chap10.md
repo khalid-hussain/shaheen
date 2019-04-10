@@ -1,8 +1,6 @@
 
 # The Spider's Web
 
-
-
 Badr Bin Mughira had encamped at a distance of twenty miles from Granada. One
 evening an officer of his army informed him that a Berber had come with some
 important message. Badr Bin Mughira called him inside his tent immediately.
@@ -233,8 +231,6 @@ in his ears.
 
 "I will definitely go." This was his final decision.
 
-
-
 It was raining heavily during the night. Abu Dawood was anxiously walking in
 that room of the house whose window opened towards the river. A black slave
 sat on one corner of the room. A bell was hanging from a wall of the room.
@@ -301,8 +297,6 @@ and find an excuse to get rid of that servant and then I will call you
 upstairs. And you know what you have to do next. In the next room, those four
 black slaves are ready to be called when needed. I will leave now. Sit
 comfortably. There is no danger here."
-
-
 
 Abu Dawood left room and Badr Bin Mughira took to observing the room.
 Suddenly, he heard footsteps from a direction. He turned around and looked,
@@ -418,8 +412,6 @@ Badr Bin Mughira entered the Dar Al-Aswad under the strict supervision of the
 soldiers after passing through a number of corridors in the light of the
 chandeliers. Observing a guard of shining swords at every step he thought that
 the idea of not escaping was a correct one.
-
-
 
 "Let me go. Let me go", Rabia said while trying to free herself from Abu
 Dawood's iron grip.

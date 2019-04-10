@@ -1,8 +1,6 @@
 
 # Tareef Bin Malik
 
-
-
 When Abu Abdullah got to know that his uncle had left Andercus for Africa he
 sent a message of congratulations to Ferdinand in Malaga and ordered for a
 celebration in Granada.
@@ -82,8 +80,6 @@ has about us. Ferdinand has made him the ruler of Loja. Go to him
 immediately."
 
 After a while, Tareef was heading towards Loja.
-
-
 
 Abu Dawood recognized Tareef Bin Malik as soon as he saw him but contrary to
 Tareef's expectation of a warm welcome, Abu Dawood did not even stand up from
@@ -231,8 +227,6 @@ pierced into his chest. Do not attack his comrades unless there is a
 compulsion to do so. After that, one of you should go to Malaga and present my
 letter to the Emperor and narrate rest of the events verbally. Now go. Even if
 Tareef has left he must not have gone far."
-
-
 
 After leaving Loja, Tareef did not talk to anyone of his companions for
 several kilometers. During the night he stayed at a small inn of a settlement
@@ -383,8 +377,6 @@ trees.
 The horse riders passed by and Tareef and his companions came out of from
 behind the trees and mounted their horses.
 
-
-
 In the wee hours of the night, these people left the main road and were
 passing through a sandy track in the murky light of the moon.
 
@@ -530,8 +522,6 @@ Tareef's back and pulled him onto his horse.
 
 While groaning Tareef said, "Take me to Moosa."
 
-
-
 After passing through lush green gardens Hassan halted his horse at an iron
 gate of the four walls of an old house. A black slave peeped out of the iron
 bars of the gate.
@@ -601,8 +591,6 @@ the flame of his life is flickering. He is waiting for you. He wants to say
 something to you."
 
 Moosa said, "Let's go."
-
-
 
 Tareef groaned in pain and said, "Quick, take me to Moosa."
 

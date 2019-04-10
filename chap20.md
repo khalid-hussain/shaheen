@@ -1,8 +1,6 @@
 
 # Tears and Smiles
 
-
-
 A little before sunset thousands of men and women were gathering around Angela
 and Rabia's stack in an open ground on the outskirts of the city of Loja. They
 were tied to wooden poles next to each other. A group of monks was singing songs
@@ -185,8 +183,6 @@ decision back. The King will nullify the verdict with his decree."
 
 "The King understands the interests of the church better than us."
 
-
-
 When Bashir Bin Hassan was talking to the Inspector, Badr Bin Mughira went close
 to Rabia from behind her and while cutting the ropes of her hands and feet,
 whispered to her and said, "Rabia! Will you be able to ride a horse?"
@@ -319,8 +315,6 @@ Mansoor Bin Ahmed's voice could be heard, "We are ready."
 
 "Let's go."
 
-
-
 After riding for about three miles, Bashir and his companions stopped at the
 gates of the four walls of a monastery. Two monks stood waiting for them at the
 gate. As soon as they recognized Bashir Bin Hassan, they called out to someone
@@ -410,8 +404,6 @@ Badr Bin Mughira would enter, his men would be ready with food for his men and
 fodder for the horses. With every destination, the quantity of his men kept
 increasing. When he was crossing the border of Ferdinand's kingdom, then the
 number of his men had become one hundred and fifty.
-
-
 
 Badr Bin Mughira was strolling anxiously in a room of the mountain fort. His
 face had the effects of hopelessness, concern and anguish. Rabia entered into
@@ -574,8 +566,6 @@ Badr said, "Yes, if you don't have any objection."
 Rabia looked at Badr Bin Mughira and taking quick steps, went out of the room
 without saying anything.
 
-
-
 Rabia's feet were stumbling. With the pace of her heartbeats, the speed of her
 motion was increasing and, at times, decreasing. Crying "Angela, Angela" she
 entered into her room. Angela stood in front of the window peeping outside. She
@@ -630,8 +620,6 @@ everything. Sit down."
 
 Angela sat on a chair and Rabia sat on a chair close to her and began telling
 her the tale of her meeting with Badr Bin Mughira.
-
-
 
 In a spacious room on the other side of the fort, Bashir Bin Hassan and other
 physicians and surgeons were busy in taking care of patients. Badr Bin Mughira

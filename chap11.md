@@ -1,8 +1,6 @@
 
 # The Mujahid and the Traitor
 
-
-
 With mixed thoughts Abu Dawood was moving towards that very court where,
 according to him, the fate of Badr Bin Mughira, and with him the fate of
 Granada too was going to be decided.
@@ -50,8 +48,6 @@ console her. When there would not be anyone at par with me in Hispania apart
 from Ferdinand, when emperors and kings would be proud of eating at my table
 and when Rabia would sit on the throne as a Queen to some King, then surely
 she would realize that her father was not her enemy."
-
-
 
 Guards stood at every entrance of the court. The warden of the court welcomed
 Abu Dawood and opened its door. On seeing Abu Dawood the attendees stood up in
@@ -115,8 +111,6 @@ situation, "I have always played with death. You can put me to death but you
 cannot take my smiles away from me. I have learned to smile like this under
 the shades of swords and below the rains of arrows and it will ridicule your
 cowardice, cruelty and deception until the last moment."
-
-
 
 The throne and crown of Granada became trivial in Abu Dawood's eyes once he
 saw this model of liberty and determination. He asked himself, "Is there such
@@ -198,8 +192,6 @@ Abu Abdullah said, "You have spoken my heart's desire. The only condition is
 that we spend the rest of the night here."
 
 Abu Dawood replied, "I am willing to sit with you untill the afternoon."
-
-
 
 Badr Bin Mughira was maneuvered from complex underground pathways into a cell
 whose door was only opened on such occasion. Besides the eight soldiers
@@ -322,8 +314,6 @@ purpose."
 
 The Queen Mother said, "May God be your protector and supporter."
 
-
-
 So far Angela was silently looking at Badr Bin Mughira. Badr Bin Mughira took
 notice of her. She nervously took a step forward and said hesitantly, "Don't
 worry about Rabia. It was difficult for her to come here."
@@ -428,8 +418,6 @@ for the day when the main gate of Al-Hamra is opened for you."
 
 Badr Bin Mughira bid farewell and advanced towards the river bank and after a
 brief hesitation, plunged into the river.
-
-
 
 Badr Bin Mughira sat on a rock on the other side of the river to catch his
 breath.

@@ -53,8 +53,6 @@ paths of progress and degenerations. If these celestial bodies have a heart,
 then, the legend of the rise and fall of the Arab rulers, would certainly be
 engraved on them.
 
-
-
 In Andalus, after the victories of the Muslims, the initial period saw the
 establishment of many small Christian kingdoms towards the northern border.
 During the reign of powerful rulers, these kingdoms would become vassals to
@@ -143,8 +141,6 @@ of Granada's degeneration were becoming apparent quite rapidly. With the
 matrimonial union of Ferdinand V and Isabella, two Christian kingdoms of
 Aragon and Castile were united and the intense discord among the Muslims
 proved to be the last blow to the glimmering flame of the Muslims.
-
-
 
 Badr Bin Mughira was called the "Frontier Falcon" by the emirs and people of
 Castile. Because of his unprecedented victories against the attacking
@@ -249,8 +245,6 @@ come. I shall arrive very soon."
 Later, Mughira called in some soldiers and ordered them to escort the envoy
 safely across the border.
 
-
-
 Late into the night, Mughira moved out from his bed and began disguising
 himself as a monk. A soldier came into the room and informed him that his
 horse was ready.
@@ -302,8 +296,6 @@ I am delayed for any reason, then, don't come running after me. In my absence,
 you will be the caretaker of this forest. I shall leave with the trust that
 you will not be careless towards your duties. If you come after me, I will
 think that you have not obeyed my orders."
-
-
 
 A month had passed but Mughira did not return because at times such trips of
 his that were scheduled for weeks would extend to months. Therefore, his
@@ -372,8 +364,6 @@ fell into this ditch while some threw away their swords.
 
 Badr Bin Mughira ordered some of his soldiers to chase the men in the ditch
 while he appointed another group to guard the prisoners.
-
-
 
 This battle ensued with the early rays of the sun and by noon Badr's 2,000
 soldiers changed into the uniforms of the Christian army's wounded and
@@ -489,8 +479,6 @@ reason for letting them go without taking ransom."
 
 Saying this Badr proceeded towards the fort.
 
-
-
 After this victory, the title "The Frontier Falcon" given by Santiago
 gradually became common to all. Several fables of bravery became associated
 with this name. Superstitious Christians used to say that the Frontier Falcon
@@ -540,8 +528,6 @@ offered him the post of Royal Physician but he refused and returned to
 Cordova. After two years, when he received a letter from Badr Bin Mughira, he
 left his luxurious palace and gave priority to living with a mujahid in the
 forest.
-
-
 
 Two months after the meeting with Al-Zefel, the ruler of Cordova, Abul Hassan,
 issued a secret decree and gave the custody of some of Cordova's bordering

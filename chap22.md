@@ -1,8 +1,6 @@
 
 # The Last Arrow in the Quiver of the Nation
 
-
-
 In a valley of the Sierra Nevada Mountains, apart from the border army, all
 those leaders of the mountain tribes were present who had taken the Valley of
 the Falcons to be their last bastion, after the snatching away of Granada.
@@ -75,8 +73,6 @@ history of Granada will not be repeated in this valley. We will fight. We will
 fight until our last breath. Instead of witnessing the tears of our
 helplessness, the dust of Andalus would be watered with our blood."
 
-
-
 Seven years had passed since the Christians captured Granada. Apart from a small
 mountainous region in the south east, the rest of Spain was under their
 dominance.
@@ -137,8 +133,6 @@ Bin Mughira but had to face humiliation every time. The number of mujahideen in
 the Valley of the Falcons was diminishing every single day. Dejected, many of
 his comrades were emigrating but there was no relent in his determination and
 liberty.
-
-
 
 In the third part of the night, Rabia suddenly woke up from her deep sleep. A
 torch was burning in her room and Badr Bin Mughira, clad in armor, was standing
@@ -241,8 +235,6 @@ stood in front of the window. Since the very early years up until now, the sound
 that their ears had heard with the utmost interest was the sound of galloping
 horses either leaving the fort or coming towards it.
 
-
-
 Some rooms of the fort were filled with injured soldiers. Angela and Rabia, who
 had learned to dispense first aid, were helping the physicians and surgeons.
 They had spent the last few days in extreme discomfort. The number of injured
@@ -301,8 +293,6 @@ the bridge of the river."
 "I will be right back." Saying this Bashir ran to fetch his bag of medicines and
 Abu Mohsin asked the soldiers who were gathering around him to put reins on
 fresh horses.
-
-
 
 Badr Bin Mughira was lying on a bed in the house of a chief of the settlement.
 While lying on the bed he had fainted three times. Some of Mansour Bin Ahmed's
@@ -364,8 +354,6 @@ Abu Mohsin has arrived with Rabia and Angela. Go out and ask them to wait in the
 other room. I will call them in after a little while."
 
 Mansoor went out.
-
-
 
 Rabia and Angela were standing in the other room of the house. The women and
 girls of the settlement were gathered around them. Everyone had tears in their
@@ -484,8 +472,6 @@ thought that he was sleeping. The physicians thought that he had fainted.
 Bashir Bin Hassan placed his hands on Badr's pulse for the last time. Then Badr
 opened his eyes and took a look and then bowed his head after saying, "We belong
 to Allah and to Him is our return."
-
-
 
 After two months some boats which had women and children riding on them was
 heading from the shore of Andalus to Morocco. Angela, Rabia, Zubaida and Yusuf
@@ -615,8 +601,6 @@ Bashir Bin Hassan replied, "You don't need my permission. Seek advice from your
 heart."
 
 "I have already taken the advice from my heart."
-
-
 
 The mujahideen kept fighting for several years under the leadership of their new
 leader Mansoor Bin Ahmed. For ages, the Valley of the Falcons kept being

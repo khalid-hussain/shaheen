@@ -1,8 +1,6 @@
 
 # Angela and Rabia's Father
 
-
-
 In the month of April, 1491, Ferdinand attacked Granada with all his military
 might. Like the King and Queen, all the knights of Andalus too had come after
 taking the oath that they would not return without conquering Granada. To keep
@@ -69,8 +67,6 @@ No. You do not have the permission to go and duel with him."
 The cavalier from Granada removed his aventail as he approached close to the
 gate of the city. The guards lowered their heads in his respect. This was Moosa
 Bin Abi Ghassan. The last sword of the Muslims of Granada.
-
-
 
 Abu Dawood stood in front of Ferdinand. In a state of extreme helplessness, he
 was witnessing the effects of his pleas on the face of the King. The King had
@@ -249,8 +245,6 @@ destroyed by any Ferdinand of the enemy, but, there are their own Abu Dawood's
 among them who send them to the pangs of death. Goodbye, Al-Hamra! Farewell,
 Granada!!"
 
-
-
 A little after Isha prayers, Badr Bin Mughira was sitting with Bashir Bin
 Hassan, Mansour Bin Ahmed and some other main commanders in a room of his
 mountain fort. A day before, his army had returned after conducting a successful
@@ -425,8 +419,6 @@ After looking at Badr for a while, Mansoor said, "If Abu Dawood has convinced
 you that his information is correct then I can compel you to confess that our
 attack on Loja would be able to yield very vital results. Even now our main
 issue is to divide Ferdinand's attention on two fronts."
-
-
 
 The next morning Badr, Bashir, Mansoor and some other officers were having
 breakfast when a soldier nervously entered into the room and gave the news that,

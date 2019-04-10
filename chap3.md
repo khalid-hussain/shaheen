@@ -3,8 +3,6 @@
 
 # The Nation-Sellers
 
-
-
 During the night, in a room of the royal palace of Castile, Queen Isabella and
 King Ferdinand sat on gilded chairs, facing each other. The expressions on
 their faces showed that both were in deep thought.
@@ -73,8 +71,6 @@ The Queen said, "Do you trust Abu Dawood to be loyal to you even after he goes
 to Granada?"  The King replied, "After having Mughira captured, he has gained
 our trust for life." "But his access to the Royal Court of Granada would not
 be that easy."
-
-
 
 Abu Dawood entered the room. He appeared to be around 45-50 years of age. From
 his features and complexion, he seemed to be a mix of Spanish and Arab
@@ -156,8 +152,6 @@ family. If you so desire, I can give this to you in writing."
 
 "Very well then. Meet me first thing in the morning. The royal treasury will
 supply you with your needs for the mission of Granada."
-
-
 
 It was raining heavily. A coach of four horses, drenched in puddle, stopped at
 the gate of a border fort of Ferdinand's kingdom. The guards of the fort, who
@@ -295,8 +289,6 @@ The officer enquired, "Does His Highness the King plan to launch an attack?"
 Abu Dawood replied, "His force is not that large to have the King to
 personally launch an attack. A clever man is enough for him who is familiar
 with his war tactics.
-
-
 
 The rain continued to pour heavily. After riding with normal speed for about a
 mile and a half, Abu Dawood ordered his coachman to increase the speed of the

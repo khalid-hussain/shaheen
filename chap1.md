@@ -1,8 +1,6 @@
 
 # The Rebel
 
-
-
 Fifty horsemen descended from the foot of the mountain while passing through the
 dense forest and stopped in front of a broken bridge by the river where the
 forest was even thicker. Running along the wild trees were grapevines, trees of
@@ -100,8 +98,6 @@ to know the strength of the army of which these troops are a vanguard of."
 The armor-clad rider removed his aventail and while handing it over to one of
 the soldiers said, "If you have no respect for a general of the Granada army,
 then, you would certainly have regard for its royal household.
-
-
 
 Appearing worried, the youth turned around and looked towards the trees. After a
 brief silence, the sound of galloping horses was heard from behind the trees and
@@ -287,8 +283,6 @@ preferred to live in this forest with me."
 
 Badr signaled to his companions and one after the other they disappeared in the
 forest.
-
-
 
 Badr and Bashir led their guests into the forest and after a while reached at
 the banks of a stream where a large cloth-spread was laid out for them on the

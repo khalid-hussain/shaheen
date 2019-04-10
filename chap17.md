@@ -1,8 +1,6 @@
 
 # Loja's New Ruler
 
-
-
 Loja's new ruler, Abu Dawood, was sitting in his palace looking at some
 official papers. His door-keeper entered the room and stood silently for a
 while. After a few minutes, when Abu Dawood did not pay heed to him, the
@@ -114,8 +112,6 @@ appropriate to bother your children."
 Abu Dawood said, "The right side of the palace is completely empty. Please do
 have a look. I think it will be enough for you."
 
-
-
 John Michael had dinner at Abu Dawood's place. Apart from a few of the city's
 nobles, the women belonging to the elite were also present at this feast. Rabia
 was absent on the pretext of being sick. Angela also made an excuse of a
@@ -182,8 +178,6 @@ religion."
 Maria said a bit remorsefully, "Angela! John Michael will be the governor of
 this city in your father's absence. I think we will be able to impress him more
 if we get to know him. Now get ready. The guests are going to arrive."
-
-
 
 After dinner, when the guests were leaving, Angela surreptitiously left the room
 and taking quick steps, entered into Rabia's room. She closed the door and said
@@ -261,8 +255,6 @@ shine out of her daughter's eyes and she left the room without saying anything.
 
 Abu Dawood said while getting up, "Rabia! I am leaving Angela in your custody.
 Don't worry about what Maria says."
-
-
 
 The clergymen and elders, who were invited by Abu Dawood from far-flung cities,
 had gathered in a spacious chamber of Castile's royal palace. Abu Dawood had met
@@ -468,8 +460,6 @@ Dawood's men were being recruited in the army as well. Some Jewish merchants had
 also come here in the guise of refugees and they were buying the souls of
 influential nobles with Ferdinand's gold and silver.
 
-
-
 The new governor of Loja, John Michael, was more inclined towards using force
 instead of wisdom. Even in Abu Dawood's presence the Muslims of Loja did not
 feel safe from the atrocities and high-handedness of the Christians. However,
@@ -563,8 +553,6 @@ if there was a distance of seven seas, even then I wouldn't be hopeless. She is
 mine. Angela is mine. There is no other way for her. Do you know who I am? You
 don't know. You are a stupid merchant."
 
-
-
 In normal circumstance, Maria wouldn't have taken any step against Angela's
 wishes but an incident occurred that compelled her take some quick decision
 concerning Angela's future.
@@ -646,8 +634,6 @@ illness and would lie in her bed as soon as she hears the name of John Michael."
 
 "Then there is no need to mention John Michael's name in front of her. He will
 arrive at the time when we have been seated at the dinner table."
-
-
 
 After meeting the Bishop of Loja, Maria sat with Rabia and Angela for the whole
 day. Angela was grieved by the fact that she could not join Rabia to perform her

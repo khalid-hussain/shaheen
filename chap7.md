@@ -3,8 +3,6 @@
 
 # The Nation and its Warrior
 
-
-
 The Frontier Falcon entered Granada with a thousand troops. News of his recent
 victory had spread to every city of the Sultanate. Aspiring for a long time,
 the people of Granada finally got a chance to see him. After a long time, they
@@ -58,8 +56,6 @@ coming down the stairs, Moosa and Al-Zaghairi quickly climbed down their
 horses. Naeem Ridwan, who was holding the reins of Badr Bin Mughira's horse,
 turned around and said, "His Royal Highness himself is coming." Badr Bin
 Mughira jumped off his horse.
-
-
 
 In the meantime, Abul Hassan had approached close to him. Instead of shaking
 his hand, he hugged him and put the garland of flowers around his neck. He
@@ -190,8 +186,6 @@ you that time has arrived."
 After Badr Bin Mughira's speech, when the crowd was cheering, Abul Hassan
 said, "I am desperate to talk to you. Abu Moosa will bring you to me after
 this procession is over."
-
-
 
 Ten days after the arrival of the Frontier Falcon, the citizens of Cordova
 came out of the city in their thousands and bid farewell to the army of Abul
@@ -355,8 +349,6 @@ physician, "He will be conscious in a while. Let him have this as soon as he
 opens his eyes. He'll go back to sleep as soon as he drinks the medicine. In
 the evening, I will come and have a look at him myself. In the meantime, make
 sure that no one wakes him or tries to talk to him."
-
-
 
 In the afternoon when Badr Bin Mughira got to speak to Bashir in private, he
 asked his friend of his unexpected arrival. Bashir Bin Hassan replied, "It was

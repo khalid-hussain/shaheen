@@ -1,7 +1,5 @@
 # Crime and its Punishment
 
-
-
 The next day John Michael's maidservant brought a letter to Maria from him.
 Reading the letter she could not believe that it was written by Michael. Every
 now and then she would enquire from the maidservant, "Is this really written by
@@ -115,8 +113,6 @@ send it to him but as far as I am concerned, even if Michael worships for a
 thousand years and I witness with my own eyes that angels descend from the sky
 to offer salutations to him, even then, I will consider him to be hateful."
 
-
-
 A month after this incident, Ferdinand had attacked Granada. After vowing not to
 return without conquering Granada, Queen Isabella and the King had entered the
 arena with all their might. Leaving Seville, Abu Dawood had made a city that was
@@ -180,8 +176,6 @@ Michael said, "She falls sick a lot. She needs treatment. Okay, carry on."
 
 When Maria's coach had travelled a distance, then, Michael said to his
 companions, "She needs a physician and I have cured a lot of patients."
-
-
 
 Rabia and Angela were having food in a room in the upper story when suddenly
 they heard some noise coming from downstairs. Rabia was startled and said,
@@ -364,8 +358,6 @@ wait. Rabia! Rabia!!"
 
 Rabia had left.
 
-
-
 After bidding farewell to Angela, Rabia went to the room where John Michael's
 corpse lay. His blood had thickened on the carpet. His face had become
 frightful. Rabia got a sheet from the other room and placed it on his face while
@@ -407,8 +399,6 @@ to come up."
 
 The disturbed soldier could not decide his course of action. He left the room
 while staring at Rabia.
-
-
 
 A short while after the soldier's departure, Rabia got up and left the room. She
 stood in the gallery and peeped outside. The sound of knocking was coming from
@@ -464,8 +454,6 @@ not fearful. Your's and Badr's aim in life is the same. He is fighting against
 evil and you are sacrificing your life for the truth. On the Day of Judgment,
 you would be able to grab his hem and say that we both were each other's
 companions in the world."
-
-
 
 The city's inspector, some army officers, the Bishop and some influential people
 stood around Michael's corpse.
@@ -812,8 +800,6 @@ sisters are involved in the conspiracy to murder John Michael and apart from
 this they are guilty of revolting against the government and spreading hatred
 against the church. To give the police a chance to investigate, the proceedings
 of the court are adjourned till tomorrow."
-
-
 
 Until evening, Maria kept screaming in a state of unconsciousness. When she
 gained consciousness she was lying in a small room instead of her own room. Her

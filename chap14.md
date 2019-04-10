@@ -1,8 +1,6 @@
 
 # Al-Zeghel's Hopelessness
 
-
-
 Badr Bin Mughira was residing in a mountainous fort. One evening, as he was
 standing and giving instructions to the soldiers and officers gathered around
 him in the fort's courtyard, a horse rider galloped into the fort. He pulled
@@ -130,8 +128,6 @@ traitors. It does not please them with bribes."
 
 Mansour said, "Write the letter. I am ready to go to Granada."
 
-
-
 After a few days, Mansour brought a reply from Al-Zeghel for Badr Bin Mughira.
 It said:
 
@@ -199,8 +195,6 @@ Abdullah's wife is still in Granada?"
 daughter-in-law should not go out of Al-Hamra until the danger of war
 prevails."
 
-
-
 Fifteen thousand Christian troops had gathered in Loja. Abu Abdullah sent his
 spies to different cities of Granada and started the mission of buying out the
 hypocrites with the wealth given by Ferdinand. Those who had associated their
@@ -239,8 +233,6 @@ removed the siege of Sakhra and ordered ten thousand of his troops to stop the
 advance of the mujahideen in the north-east. He left the required number of
 troops with Abu Abdullah for the protection of Loja, Al-Beera and Mashinal
 while he returned to deal with the threat from the King of France.
-
-
 
 To reach a compromise with the King of France, Ferdinand sent a delegation of
 priests and made him realize that the war in Granada and Hispania was a war
@@ -294,8 +286,6 @@ Even Badr Bin Mughira diverted his attacks towards the southeast instead of
 the northeast but the minor losses could not uproot Ferdinand's cowardly
 troops and based on previous bad experiences he didn't permit his troops for
 an onslaught.
-
-
 
 The people of Granada were in a sorry state. People dying of hunger were
 willing to lay down their arms but Al-Zaghairi did not loose hope. To the ones
@@ -356,8 +346,6 @@ people of Beegha eventually gave in due to intense famine.
 
 After making Beegha his bastion Ferdinand captured Al-Zeghel's forts in  one
 after the other.
-
-
 
 Bashir Bin Hassan was tying a bandage around Badr Bin Mughira's wounded arm.
 Mansour entered the room. Badr Bin Mughira enquired, "Mansour! You have not

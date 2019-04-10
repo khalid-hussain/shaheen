@@ -3,8 +3,6 @@
 
 # New Endeavors
 
-
-
 After the victory of Sakhra, Abul Hassan started preparing for a decisive war
 against the Christians at a massive scale. Those influential chiefs and
 leaders of tribes of the sultanate who, so far, had been involved in the
@@ -70,8 +68,6 @@ student was waiting for. But the student was oblivious of his teacher's
 objectives and today when Abu Dawood left his house on receiving a message
 from Abu Abdullah, in a glance he judged that his student was engulfed in a
 new anxiety.
-
-
 
 While getting up to show respect for his teacher, Abu Abdullah ordered a
 eunuch to shut the door. The teacher and student then sat on ebony chairs,
@@ -185,8 +181,6 @@ face emerged in front his eyes. Badr Bin Mughira said to the slave girl,
 In the evening she learned from her father that the Frontier Falcon had
 returned to his habitat.
 
-
-
 While Ferdinand was making preparations to avenge the Frontier Falcon, he
 received the news that Sakhra had been captured by Abul Hassan. He immediately
 ordered all his governors and chiefs to make preparations. His spies,
@@ -260,8 +254,6 @@ I will proceed to Loja. Their entire focus would be on me and Cadiz's army
 would get a chance to capture Alhama. I will also give marching orders to the
 armies of Cordova and Seville. If we were to take a defeat at a front it
 certainly won't be Alhama's.
-
-
 
 Spies had informed Abul Hassan that Ferdinand had left Castile with a legion
 of his troops. Alongwith this, he also got to know about the troop movement of
@@ -384,8 +376,6 @@ headquarters."
 Saying this Moosa signaled his comrades, prompted his horse and took-off. The
 soldiers saw them disappear in the clouds of dust just as they had appeared.
 
-
-
 When Badr Bin Mughira received the news that the rest of Granada's army was
 gathering to fight a decisive battle at Loja, he decided to give a final blow
 to the army of Cordova and sent across a message to his deputy, Mansour Bin
@@ -423,8 +413,6 @@ bravely for the hope of victory, became hopeless and lost its morale. Only a
 few found a safe passage to escape. By noon, the field was filled with the
 corpses of Cordova's soldiers and the remaining few troops had thrown away
 their weapons.
-
-
 
 At Loja's front, Abul Hassan deployed thirty thousand of his troops in the
 face of Ferdinand's army of fifty thousand. For two days, Ferdinand's knights
@@ -545,8 +533,6 @@ Bin Mughira's lance that was still pierced into the ground.
 Four of Ferdinand's knights, who came one after the other for a duel faced
 death at the hands of Naeem. After the fatality of the last knight, Ferdinand
 gave the order of an all-out attack.
-
-
 
 By noon, when the battle was at its thickest, Mansour Bin Ahmed arrived with
 Badr's army. By afternoon, Ferdinand's army started to show signs of defeat.
