@@ -74,7 +74,7 @@ the speech:
 "People of Granada! Today you have among you that great mujahid, who has
 written his name in the history of Andalus with the tip of his sword, who has
 defeated Ferdinand's tiny-hearted army several times with a handful of
-mujahideen. Badr bin Mughira, your Frontier Falcon, has come to you with a
+mujāhidīn. Badr bin Mughira, your Frontier Falcon, has come to you with a
 message and that message is that if a nation is willing to bathe in blood and
 is ready to jump into fire for its honor and liberty, then, no power on earth
 can defeat it."

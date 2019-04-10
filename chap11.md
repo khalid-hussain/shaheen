@@ -83,7 +83,7 @@ orders you want regarding me but that doesn't mean I am a criminal and have
 accepted you as a judge over me. I did not accept your father as my amir
 because he was the Sultan of Granada and he sat on couches of gold, in
 buildings of marble. On the contrary, I accepted his leadership because he had
-declared jihad against the worst enemy of Islam and you are a toy in
+declared _jihād_ against the worst enemy of Islam and you are a toy in
 Ferdinand's hand. How did you even think that I would swear allegiance to
 you?"
 

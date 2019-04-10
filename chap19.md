@@ -4,7 +4,7 @@
 In the month of April, 1491, Ferdinand attacked Granada with all his military
 might. Like the King and Queen, all the knights of Andalus too had come after
 taking the oath that they would not return without conquering Granada. To keep
-the Shaheens of the valley and the mujahideens of Alpujarras engaged, he had
+the Shaheens of the valley and the mujāhidīns of Alpujarras engaged, he had
 already dispatched an army of horsemen. The command of the army of Granada was
 in Musa's hand. Although there was a huge group of hypocrites and traitors
 working against them, however, majority of the public was ready to give up their
@@ -475,14 +475,14 @@ Toledo. The first time when I came in the capacity of a guest, I was Ferdinand's
 spy and the attack by the enemy on your fort during the night was on my behest.
 I got Musa arrested in Al-Hamra. I had convinced Abu Abdullah to become a
 nation seller. In Granada, the Muslim spies from Andalus who have been sent to
-propagate against the jihad were trained by me. You have asked me, when will
+propagate against the _jihād_ were trained by me. You have asked me, when will
 Angela and Rabia be punished and I have told you that they will be burned alive
 on the fourth of the next lunar month. You must be surprised as to why the court
 has given them so much time. At night if I had told you the reason then you
 would have suspected me even more. To get a time for a month I had to promise
 Ferdinand that if Badr bin Mughira is alive then I will present him in front one
 you under one pretext or another. I had also promised him that I will create
-schism in the ranks of the mujahideen. Against this, Ferdinand promised to save
+schism in the ranks of the mujāhidīn. Against this, Ferdinand promised to save
 the lives of Rabia and Angela.
 
 Abu Dawood, the politician, might never have confessed to these crimes of his

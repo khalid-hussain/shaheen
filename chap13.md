@@ -209,7 +209,7 @@ the time for slogans. It is a time to act."
 If you say that Abu Abdullah is insensitive, then what will you call a people
 who have recognized him as their leader. Abu Abdullah is a coward who fears
 the Christians immensely but isn't it correct that you too were fearful of
-them until the warriors of the border and Al-Zeghel's mujahideen proved to you
+them until the warriors of the border and Al-Zeghel's mujāhidīn proved to you
 that metal of the Muslims can cut any metal even today. You too, like Abu
 Abdullah, were afraid of the Christians and before this, until Abul Hassan
 dragged you into the battlefield by force, you were content living a life of
@@ -315,7 +315,7 @@ Abu Abdullah gave a perturbed look towards his mother and Aisha and without
 saying a word, moved quickly towards the stairs. The mother and
 daughter-in-law silently stared at each other until the sound of footsteps
 were heard. After a while Aisha said, "Mother! If I actually have your
-permission, I am ready to join the ranks of these mujahideen."
+permission, I am ready to join the ranks of these mujāhidīn."
 
 Abu Abdullah's mother said, "Daughter! After all this talk, my heart testifies
 that Abu Abdullah won't let us down but if nature has written nothing but
@@ -323,13 +323,13 @@ disgrace for us then I will stand by you. Pray that Abu Abdullah comes to the
 straight path after straying away from it."
 
 After conversing for a while, the mother-in-law and daughter-in-law stood in
-the gallery watching the formation of line after line of the mujahideen
+the gallery watching the formation of line after line of the mujāhidīn
 standing in front of the gate. After inspecting the lines of volunteers, Abu
 Mohsin stopped his horse in front of the gate of the palace and after
 pondering for a while he said loudly:
 
 "Mujahids! A few days ago I thought that we had reached where nations cannot
-rise again but the glorious victory by Al-Zeghel and the mujahideen of the
+rise again but the glorious victory by Al-Zeghel and the mujāhidīn of the
 border has changed my pessimism into optimism. A few moments ago when I was
 standing before you, I didn't know what to say. But I knew that it was
 important for me to say something and God knows what all I have said to you. I

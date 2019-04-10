@@ -87,7 +87,7 @@ had laid their arms down they took part with the Christians in the celebration
 of victory. Gathering at the gates of their Christian rulers, they raised
 slogans of victory. Their religious leaders announced that the victory of
 Granada was not only a victory for the Christians but a victory for all of us.
-They accused Badr and his mujahideen, who were still fighting a war of
+They accused Badr and his mujāhidīn, who were still fighting a war of
 independence from the mountains and forests, of being traitors to the country.
 
 But in a span of seven years they found out that in the mill of oppression,
@@ -129,7 +129,7 @@ Muslims within a span of a few days and quelled the revolt.
 
 When the banners of freedom were still fluttering in the mountains and forests
 of the South-east, Ferdinand dispatched many mission for the suppression of Badr
-bin Mughira but had to face humiliation every time. The number of mujahideen in
+bin Mughira but had to face humiliation every time. The number of mujāhidīn in
 the Valley of the Falcons was diminishing every single day. Dejected, many of
 his comrades were emigrating but there was no relent in his determination and
 liberty.
@@ -159,7 +159,7 @@ dozes off in Yusuf's room. Where is Bashir?"
 
 Badr bin Mughira replied, "He's bringing the wounded ones along with him.
 Hopefully, he will reach here by tomorrow. This time, two hundred of our men
-were injured and fifty mujahideen were martyred in the battle while more than
+were injured and fifty mujāhidīn were martyred in the battle while more than
 three thousand enemy soldiers were condemned to death."
 
 Rabia was looking at her husband silently. The noise of the soldiers gathered
@@ -177,7 +177,7 @@ come along with you."
 
 "You always say that. Ask Zubaida. Just today I threw her doll in the air and
 struck it with an arrow. She said 'now you have grown up. Now you can go for
-jihad.'"
+_jihād_.'"
 
 "No, son! Your little hands are still not capable of handling a sword and lance.
 You still play with a toy bow. When you will be able to shoot an arrow with a
@@ -225,7 +225,7 @@ Badr bin Mughira looked at Rabia, bid her farewell and taking quick steps left
 the room.
 
 After a while, Rabia and Angela were looking out of the window. The army of the
-mujahideen left the fort and had disappeared into the forest but the galloping
+mujāhidīn left the fort and had disappeared into the forest but the galloping
 of the horses could still be heard. The galloping subsided gradually and finally
 vanished in thin air. Rabia and Angela were now looking at each other instead of
 peeping outside.
@@ -241,7 +241,7 @@ They had spent the last few days in extreme discomfort. The number of injured
 coming from the western front was increasing by the day. Apart from this fort,
 another fort that was a few miles away from this one, had also been prepared to
 treat the injured, therefore, Bashir bin Hassan had to go there too once a day.
-Alarming news was being received everyday about the war. The mujahideen had
+Alarming news was being received everyday about the war. The mujāhidīn had
 pushed the enemy back several times but with every defeat the enemy was bringing
 fresh troops into the field. This was the first battle of the Frontier Falcon in
 which the number of the martyrs had reached to around one thousand.
@@ -262,9 +262,9 @@ Some of the injured came out of their rooms as soon as they heard the news of
 the victory and those injured who weren't able to walk got up and sat down. The
 blood of life was running on the withered faces. Frightened glances were now
 being raised towards the sky with pride and arrogance. The guards of the fort
-were embracing the injured mujahideen. Standing in the gallery of the upper
+were embracing the injured mujāhidīn. Standing in the gallery of the upper
 story, Rabia and Angela, along with their minor children, were listening to the
-enthusiastic slogans of the mujahideen.
+enthusiastic slogans of the mujāhidīn.
 
 After a while the people from nearby settlements were heading towards this fort
 to get the details of the victory. The crowd of these people stayed until the
@@ -402,7 +402,7 @@ so long, eventually flowed over.
 Badr said, "I have explained a few things about your future to Mansoor. He will
 take you to Morocco. The enemy will not sit idle for long after this defeat.
 They might attack with all their strength after the winters are over. In such
-circumstances, maybe the mujahideen would have to push back and fight a
+circumstances, maybe the mujāhidīn would have to push back and fight a
 guerrilla war in the difficult terrain of the mountains. In such a war,
 protecting the women and children becomes quite an issue. Therefore, I have
 asked Mansoor to take all the women and children to Morocco."
@@ -427,7 +427,7 @@ be able to send some army from there for their assistance even then it will be
 enough from your side if you can take the orphans and wives of those friends of
 mine, who have been martyred in the past battles, along with you to some safe
 place. Do their upbringing. Make these orphaned children capable enough so that
-they grow up and are able to do jihad. It is possible that a Tariq or Abdul
+they grow up and are able to do _jihād_. It is possible that a Tariq or Abdul
 Rehman would come out of them."
 
 Rabia said, "I will obey your orders."
@@ -547,9 +547,9 @@ will increase the problems for the remainder of the Muslims in Andalus."
 "No, on the contrary we think that when our swords will go back in the
 scabbards, the hands of tyranny will be raised on them with more severity."
 
-"But what will be the outcome of the war by a handful of mujahideen?"
+"But what will be the outcome of the war by a handful of mujāhidīn?"
 
-"There can only be two outcomes of a war by the mujahideen. Victory or
+"There can only be two outcomes of a war by the mujāhidīn. Victory or
 martyrdom."
 
 "I think, in your case, there are more chances of martyrdom than of a victory."
@@ -562,7 +562,7 @@ would not have a life of humiliation and disgrace."
 
 The captain said, "If nature intended our betterment then a glorious mujahid
 like Musa would not have had to face defeat in Granada and after him the
-remainder of the mujahideen wouldn't have been deprived of Badr bin Mughira's
+remainder of the mujāhidīn wouldn't have been deprived of Badr bin Mughira's
 leadership."
 
 Bashir annoyingly said, "Who says that Musa has been unsuccessful in his
@@ -575,7 +575,7 @@ few more days in this world. Musa was a true believer. He lived a life of a
 true believer and died a death of a true believer. If you think that nature
 doesn't require our betterment, even then you are wrong. Nature has showered us
 with gifts for centuries for the sake of a few people. We defeated the mightiest
-powers of the world. Isn't it a gift of nature that a handful of mujahideen in
+powers of the world. Isn't it a gift of nature that a handful of mujāhidīn in
 the Valley of the Falcons have been stopping the storm of savagery and barbarism
 for years? Isn't it a gift of nature that it gave another chance to a nation,
 whose social ethics and character had perished, leaders like Badr and Musa so
@@ -590,7 +590,7 @@ Morocco, Egypt, Turkey and other countries. These people will keep fighting with
 the hope that one day their brothers will wake up from their deep sleep. That
 someday a mujahid might come to their aid and if the world of Islam doesn't wake
 up, even then, the responsibility for the total destruction of the Muslims of
-Andalus will not rest on these mujahideen, who would have written, with their
+Andalus will not rest on these mujāhidīn, who would have written, with their
 blood, on the pages of world history that when the Muslims of the whole world
 were sleeping, then, in a corner of Andalus, some diehard people were guarding
 the sanctity of the Sacred Mosque."
@@ -602,7 +602,7 @@ heart."
 
 "I have already taken the advice from my heart."
 
-The mujahideen kept fighting for several years under the leadership of their new
+The mujāhidīn kept fighting for several years under the leadership of their new
 leader Mansoor bin Ahmed. For ages, the Valley of the Falcons kept being
 beautified with their blood. Several times their swords proved to be Alexander's
 blow in front of the flood of savagery and barbarism. At times they would have
@@ -621,9 +621,9 @@ from Afghanistan came to their aid. The dust of Andalus kept being watered with
 the blood of the martyrs while the rocks of Gibraltar kept waiting for the ships
 from the south and east. Until Mansoor and his comrades kept fighting the way
 for the Muslims to migrate remained somewhat open. Gradually, the number of
-mujahideen kept dwindling. However, they kept the war on for another three
+mujāhidīn kept dwindling. However, they kept the war on for another three
 generations. This war stopped with the last drop of blood in the veins of the
-mujahideen. The sword admitted it helplessness when the hands that held it were
+mujāhidīn. The sword admitted it helplessness when the hands that held it were
 eventually cut. Then the flood of savagery and barbarism came with its
 rejuvenated power and renewed intentions. For the remainder of the Muslims in
 Andalus, there was nothing but fire, blood, tears and sighs left for them.

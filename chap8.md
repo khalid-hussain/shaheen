@@ -10,7 +10,7 @@ internal squabbles between Arab Berbers and Hispanian Muslims, began uniting
 against the common enemy. For the Hispanian and the Berber chiefs, Abul Hassan
 had become a Muslim leader instead of being merely a leader. He had raised the
 crescent flag against the Christian flag. An influential segment of Islamic
-scholars had given this war the status of a jihad. After the victory of
+scholars had given this war the status of a _jihād_. After the victory of
 Sakhra, when Abul Hassan returned to Granada, for the first time he felt that
 he had become the leader of Granada in the true sense of the word. The people
 had laid down flower wreaths in his path from the military headquarters till
@@ -21,7 +21,7 @@ sky, then raised his hands and supplicated:
 
 "O Lord! Give strength to my weak hands. Grant me the determination of Tariq
 bin Ziyad and the morale of Musa bin Naseer. Grant my people, once more, the
-fiery of those mujahideen whose horses drank water from the rivers of France
+fiery of those mujāhidīn whose horses drank water from the rivers of France
 on one side and the rivers of China from the other. Transform our disunity
 into unity. You can change this pile of sand to a cliff. My Lord! Don't
 disappoint these people who are so overjoyed by a small victory. I was not

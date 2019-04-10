@@ -174,12 +174,12 @@ smaller independent region of Mughira a greater threat. He also felt that to
 conquer this region he would have to sacrifice a substantial amount of his
 army.
 
-Assessing the upcoming threat, Mughira started preparing mujahideen groups
+Assessing the upcoming threat, Mughira started preparing mujāhidīn groups
 from the length and breadth of Andalus. He delegated the protection of the
 independent areas to his subordinate and guised as an ordinary merchant,
 toured major cities of Andalus. Muslims of Cordova, Seville and other cities,
 whose souls were suffocating in the chains of slavery committed themselves to
-taking part in jihad under him and in due time would raise the flag of revolt
+taking part in _jihād_ under him and in due time would raise the flag of revolt
 in their respective cities. Hence, Mughira realized that after living under
 slavery in Christian Andalus for a long time, there were very few Muslims left
 here who would be willing to live and die for Islam. The techniques adopted by
@@ -202,15 +202,15 @@ Berbers immigrated to Morocco while some settled in Granada.
 
 Mughira was not very optimistic after he returned from his visit to the
 different cities. From thirty cities about four thousand Muslims took pledge
-at his hands for jihad. Therefore, he was not disappointed and vowed to spread
-the message of jihad to every city of Andalus. He also felt that unless and
+at his hands for _jihād_. Therefore, he was not disappointed and vowed to spread
+the message of _jihād_ to every city of Andalus. He also felt that unless and
 until the flag of revolt is not raised by a brave ruler of Granada, the Muslim
 dream of a renaissance would remain unfulfilled. His biggest wish was that the
-ruler of Granada declare jihad against the Christians and after which he would
+ruler of Granada declare _jihād_ against the Christians and after which he would
 join this army of diehard fighters. But Granada's throne was in the midst of
 severe dynastic squabbles. Despite the circumstances, Mughira did not lose
 hope. Every year he would disguise himself and tour different cities,
-preparing people for jihad. On returning to his residence too, he would spend
+preparing people for _jihād_. On returning to his residence too, he would spend
 most of his time writing letters to secret organizations in different cities
 of Andalus.
 
@@ -336,7 +336,7 @@ used as bait to catch the lion of the jungle.
 Gradually, the news of Mughira's assassination spread to Andalus. With this
 news, a blanket of pessimism spread over the covert organizations. The people
 of Granada too, felt that one of their strong arm had been broken.
-Nonetheless, to the mujahideen, Mughira's rather young but promising son
+Nonetheless, to the mujāhidīn, Mughira's rather young but promising son
 proved to be a befitting replacement.
 
 One day the Christian governor of the border territory suddenly attacked. Badr
@@ -513,7 +513,7 @@ their lost glory.
 Meanwhile, Badr bin Mughira took advantage of the situation and constantly
 kept consolidating his strength. Gradually, when the people of clandestine
 groups of various cities found out that the Frontier Falcon is none other than
-Mughira's young son, some of them, who were keen on taking part in jihad, left
+Mughira's young son, some of them, who were keen on taking part in _jihād_, left
 their homes and joined-up with him.
 
 One such individual who migrated from Cordova was Bashir bin Hassan. Living up

@@ -161,7 +161,7 @@ misunderstand about our future. If we do not decide to unite and organize for
 a decisive war against Ferdinand, then, we would gradually be annihilated. My
 message to you is that a courageous death is better than a coward's life. And
 this is the message I'm taking to the people of Granada. I'm sure after
-listening to the atrocities, Abul Hassan will not delay in pronouncing jihad
+listening to the atrocities, Abul Hassan will not delay in pronouncing _jihād_
 against the enemies of Islam.
 
 After the speech, when he was returning with Badr and Bashir to his room,
@@ -214,7 +214,7 @@ problems have eased considerably."
 
 "And the result of whatever I have done over the past 20 years would be
 apparent when Abul Hassan or any other successor to Granada's throne after
-him, would proclaim jihad against the Christians. Now, you might want to know
+him, would proclaim _jihād_ against the Christians. Now, you might want to know
 the reason of my fleeing from there. I have not run away because the
 government has uncovered my conspiracies. The only reason is that a youth from
 the royal family of Castile wanted to marry my younger daughter. They had
@@ -674,7 +674,7 @@ therefore he would give his life for me. When he was 14 years old, the
 governor of Castile hanged his father in a conspiracy case and he witnessed
 the terrible sight with his own eyes. You don't know how much he respects you.
 Today he was saying that, God-willing, he would leave his children with me in
-Granada and join the ranks of your mujahideen."
+Granada and join the ranks of your mujāhidīn."
 
 Badr bin Mughira said, "How unfortunate that I did not show much interest in
 him. Anyways, whenever he wants, my men will help him to get to the other side

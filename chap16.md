@@ -30,7 +30,7 @@ him. I will wait here for his orders."
 The youth replied, "The Lion of Granada does not need any permission to enter
 the Valley of the Falcon."
 
-The youth was the commander of this group of mujahideen. On his single cue, a
+The youth was the commander of this group of mujāhidīn. On his single cue, a
 soldier brought Musa's tied horse. The youth addressed Musa and said,
 "Please mount your horse. Our horses are on the other side of the stream."
 
@@ -223,7 +223,7 @@ instead of death of indignity. This will be the first war against Ferdinand in
 which maybe the nation's old traitors and the peace-loving people would also
 support us."
 
-Badr bin Mughira said, "And for this jihad you will have to pledge again at
+Badr bin Mughira said, "And for this _jihād_ you will have to pledge again at
 the holy hand of Abu Abdullah."
 
 Musa replied in a state of concern, "I have come to you for Granada not for
@@ -236,7 +236,7 @@ and started peeping outside. His back was towards Musa.
 
 Musa said, "Had I not known that given the circumstances we were able to
 defend the four walls of Granada, then, I would have joined the ranks of your
-mujahideen as an ordinary soldier but I am sure that with your help we can win
+mujāhidīn as an ordinary soldier but I am sure that with your help we can win
 this war. Even now, more than one hundred thousand volunteers can be recruited
 in Granada."
 
@@ -281,7 +281,7 @@ made the same mistake. He assembled an army of volunteers and made Abu
 Abdullah its leader but along with Abu Abdullah the traitors also came into
 the field and his victories transformed to defeats."
 
-"Musa! If you have come here with an invitation of jihad, then you won't be
+"Musa! If you have come here with an invitation of _jihād_, then you won't be
 disappointed but despite all these incidents do we still have to carry the
 coffins of Abu Abdullah and his companions? Rest assured that we are not the
 type who would close their eyes to an ensuing flood but instead of sitting in
@@ -346,7 +346,7 @@ The city's leadership was in Musa's hand and his morale boosting speech had
 breadth new life into the people of Granada. Like the rest of the people, Abu
 Abdullah and his comrades had also accepted him as their leader and the people
 too had forgotten their past sins. The theologians, along with their students
-and followers, had already proclaimed jihad against Ferdinand. The chiefs did
+and followers, had already proclaimed _jihād_ against Ferdinand. The chiefs did
 the same on behalf of their tribes. The fervor of the youth was such that they
 had hung two influential tribal chiefs for being spies of Ferdinand.
 
@@ -500,7 +500,7 @@ his reserve troops to the field that were away from the battlefield, guarding
 the camps. Once again the Christians had consolidated their position.
 
 Suddenly, a little away from the battlefield, a fresh group of border
-mujahideen appeared from the dense trees of a garden. These horsemen, who were
+mujāhidīn appeared from the dense trees of a garden. These horsemen, who were
 around a hundred had torches in their hands and they were headed towards the
 encampment of Ferdinand's forces instead of the battlefield. Most of the
 reserve troops had already arrived at the battlefield. Ferdinand's remaining
@@ -581,7 +581,7 @@ the other side of the stream, the contingent of cavalry archers that was on
 fresh horses was continuously raining arrows at them.
 
 As they approached the stream, most of the horses of Ferdinand's troops were
-free from the burden of their horsemen. The mujahideen were slaughtering them
+free from the burden of their horsemen. The mujāhidīn were slaughtering them
 with their swords instead of their lances. Their hands were becoming numb but
 the joy of victory was making each one outshine the other. Badr bin Mughira
 saw a horseman from Granada on his left. His aventail and armor shone in the
@@ -605,7 +605,7 @@ sword fell from his hand and he rested his head on his hands. Badr bin Mughira
 put his arm around his back and pulled him onto his horse.
 
 By midnight the remainder of Ferdinand's troops were crossing the river and
-the mujahideen were raining arrows at them. This was the biggest defeat of
+the mujāhidīn were raining arrows at them. This was the biggest defeat of
 Ferdinand's life.
 
 After this glorious victory, Musa came down from his horse and performed a
@@ -835,7 +835,7 @@ slavery for a few pieces of humiliation, Badr bin Mughira came as an angel of
 mercy for us.
 
 Yesterday's sun saw dark clouds of hopelessness on your faces and today's sun
-sees the smiles of gladness on your lips. The mujahideen of the border have
+sees the smiles of gladness on your lips. The mujāhidīn of the border have
 taught you a forgotten lesson and that is that the secret of the strength of
 the Muslims is not in their number but rather in their iman.
 

@@ -144,7 +144,7 @@ of my own residence. Say, for example, Abu Abdullah is not convinced by your
 talk and he has ulterior motives, even then he would be in a closed room with
 the Frontier Falcon. You would be able to have him sign every order that is
 necessary to take over Al-Hamra and to implement the orders. There would be a
-few mujahideen in the palace whom I consider to be Abul Hassan's loyalists.
+few mujāhidīn in the palace whom I consider to be Abul Hassan's loyalists.
 Those serving as spies to the nation sellers could be called into the room one
 after the other for whom I will also prepare four strong, well-built negro
 executioners.

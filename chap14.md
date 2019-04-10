@@ -230,7 +230,7 @@ advancement from the North-east. Ferdinand was compelled to lift the siege of
 Sakhra and at the same time Ferdinand received the news that the king of
 France was advancing towards Pyrenees with a legion of troops. Ferdinand
 removed the siege of Sakhra and ordered ten thousand of his troops to stop the
-advance of the mujahideen in the north-east. He left the required number of
+advance of the mujāhidīn in the north-east. He left the required number of
 troops with Abu Abdullah for the protection of Loja, Al-Beera and Mashinal
 while he returned to deal with the threat from the King of France.
 

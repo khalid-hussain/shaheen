@@ -119,7 +119,7 @@ condition of our brothers in Spain. Mountains of calamities broke on their heads
 when the Christians had realized our insensitivity."
 
 A person got up and said, "Some scholars of Granada think that this ongoing,
-indecisive war of ours with Ferdinand is not jihad. A major segment of our
+indecisive war of ours with Ferdinand is not _jihād_. A major segment of our
 nation is being governed by the Christians and the result of this war will only
 aggravate the problems for us and our brothers."
 
@@ -128,7 +128,7 @@ Biting his lips in rage, Musa stood up. He said in a shivering voice:
 "Our war is a war for the sake of humanity against tyranny and oppression. Our
 victory would be a victory for humanity and our defeat would be the defeat of
 humanity. I will not permit some idiot to be remembered as a scholar in this
-council who doesn't consider this a jihad.
+council who doesn't consider this a _jihād_.
 
 Citizens of Granada! Why don't you think that we are fighting for that piece of
 land on which we are standing on? If this is snatched away from us, we would
@@ -443,7 +443,7 @@ the cross on the tower of Al-Hamra with their holy hands.
 
 Eyes of the men, women and children were glued to the tower of Al-Hamra. This
 city that had, for centuries, heard slogans being raised in jubilations by the
-mujahideen of Islam after their return from far-flung victories was now hearing
+mujāhidīn of Islam after their return from far-flung victories was now hearing
 the anthem of the enemy's victory. So far, the flag of Islam was fluttering over
 the tower of Al-Hamra. The people of Granada were witnessing that star of their
 destiny which was going to set forever. When Granada's crescent flag was being

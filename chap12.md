@@ -143,7 +143,7 @@ times greater but the continuous attacks in the valley by the horsemen had
 uprooted them. The general decided to retreat by battling defensively. Exiting
 the valley and entering into a narrow gorge, he thought that his troops were
 now safe from the range of the lancers but here too he could not take a sigh
-of relief. Once again the cries of the mujahideen hiding behind grisly rocks
+of relief. Once again the cries of the mujāhidīn hiding behind grisly rocks
 were heard and the rain of stones and arrows ensued.
 
 A stone came and hit the general and he fell down. The troops became hopeless
@@ -193,18 +193,18 @@ few selected officers of Al-Zeghel's army, who knew about this secret, had the
 permission to go there.
 
 The bellicose tribes of Alpujarras thronged under Al-Zeghel's banner. After a
-long time, they got a chance to fight alongside the mujahideen of the falcon's
+long time, they got a chance to fight alongside the mujāhidīn of the falcon's
 territory. Because Mansour bin Ahmed used to be considered Badr bin Mughira's
 successor, therefore, they requested Al-Zeghel to give them under Mansour bin
 Ahmed's command. Mansoor prepared the battle map according to Badr bin
-Mughira's instructions and spread the tribal mujahideen on the entire
+Mughira's instructions and spread the tribal mujāhidīn on the entire
 pathways. He instructed them to seal the areas behind the Christian army as it
 advanced forward.
 
 This battalion was unaware of the consequence suffered by the army that had
 attacked the territory of the falcon. After encamping for five days at the
 fort of the Sierra Nevada they kept waiting for a message from its general.
-However, a few night raids by the tribal mujahideen compelled them to move
+However, a few night raids by the tribal mujāhidīn compelled them to move
 forward.
 
 After burning a few settlements and capturing a few men and women during their
@@ -295,7 +295,7 @@ intensely but soon five thousand additional troops descended a mountain under
 the leadership of a masked man. Their flag sported a picture of a falcon. They
 threw the enemy lines in disarray in the first charge. The battlefield started
 echoing with cries of "Long Live Islam", "Long Live Granada", "Long Live
-Al-Zeghel" and "Long Live the Mujahideen".
+Al-Zeghel" and "Long Live the mujāhidīn".
 
 Three thousand horsemen of Ferdinand's army left the battlefield and headed
 towards the forest while the rest threw down their arms.
@@ -319,7 +319,7 @@ flag will be hoisted by Abu Abdullah over Malaga. Have trust in Allah's
 support. These nation sellers and mercenaries are no competition for you. Abu
 Abdullah's biggest support is Ferdinand but you have heard the good news that
 half of his army has been devastated in the territory of the falcon by a
-handful of mujahideen."
+handful of mujāhidīn."
 
 "In the coming days, God-willing, you will also hear that the rest of his army
 in Sierra Nevada has had the same fate. Mujahids! Advance forward! The group
@@ -351,7 +351,7 @@ Moments later, Abu Abdullah's army saw the Berber chief agonizing on the
 ground.
 
 Al-Zaghairi's army waited for his signal. Al-Zaghairi shouted "Allahu Akbar"
-as he raised his lance and the mujahideen of Malaga attacked Abu Abdullah's
+as he raised his lance and the mujāhidīn of Malaga attacked Abu Abdullah's
 army like a storm.
 
 After an hour the battalion of nation-sellers was heading towards Granada
@@ -363,7 +363,7 @@ news of the glorious victory of the Muslims in Sierra Nevada and the Territory
 of the Falcon. There were celebrations in the markets and streets. Some
 gathered in the mosques and prayed for Al-Zeghel's long life while some
 gathered at road intersections encircling poets and listened to their odes and
-tributes honoring the frontier warriors and tribal mujahideen.
+tributes honoring the frontier warriors and tribal mujāhidīn.
 
 Shortly after Abu Abdullah entered the Al-Hamra palace, the news of his defeat
 spread in the entire city and the people started gathering outside the gate of

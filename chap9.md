@@ -318,10 +318,10 @@ Before the evening prayers, the consultative council decided to depart the
 following morning. The next morning Abul Hassan gave the following speech in
 front of his troops:
 
-"O Mujahideen! I see the glorious victory at Loja a great reward of destiny.
+"O mujāhidīn! I see the glorious victory at Loja a great reward of destiny.
 This is a proof to the fact that if the Muslims of Granada were to unite, they
 can, even today, smash every force of the infidels and if they were to rise
-with the passion for jihad, their metal, even today, could cut any other
+with the passion for _jihād_, their metal, even today, could cut any other
 metal. This victory has opened the highway to other successes and if we don't
 despair then I assure you that that day is not far when our flag would be
 hoisted, once again, over the parliaments of Cordova and Seville."
@@ -412,7 +412,7 @@ during wartime are dealt with severely."
 
 The newcomer said, "Had you looked carefully, you would have recognized me. I
 am the son of the Palace Warden of Al-Hamra. I am a student of Habeera bin
-Saeed. For a few days I had been propagating jihad with Musa...
+Saeed. For a few days I had been propagating _jihād_ with Musa...
 
 A lot of the men here in the army recognize me, but if the terrible news that
 I have come here with were to be proved wrong, then, I would be more than
@@ -496,8 +496,8 @@ messenger has arrived with the news that some Christian troops have taken over
 an unguarded fort of ours near the border then you could have given me this
 news in front of the army. To face this new scenario, we could have delayed
 our decision to march forward by a day. Al-Zeghel! Why has your tongue gone
-mute? Tell me what crisis has befallen that the swords of these mujahideen
-can't compensate? Which palace has fallen that these mujahideen cannot
+mute? Tell me what crisis has befallen that the swords of these mujāhidīn
+can't compensate? Which palace has fallen that these mujāhidīn cannot
 rebuild? The greatest wealth of a general are his soldiers. Besides Musa and
 Abdullah, the people who are dearest to me are with me. Nobody's death will be
 unbearable for me. Didn't you see that there was not a trace of tear in my
@@ -687,7 +687,7 @@ After this meeting, Al-Zeghel, Badr bin Mughira, Al-Zaghairi and other army
 officials decided, in a council, to restructure the army from scratch.
 
 Al-Zeghel sent a delegation to specific chiefs of the entire Sultanate. Badr
-bin Mughira's fighters grouped into small bands and began propagating jihad.
+bin Mughira's fighters grouped into small bands and began propagating _jihād_.
 
 Badr bin Mughira personally left Malaga with five hundred of his fighters and
 reached the suburbs of Granada where he started the mission of mustering
