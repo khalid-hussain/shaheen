@@ -413,7 +413,7 @@ when some of the things that Maria and Angela would say would become
 unbearable, then, she would be compelled to quarrel. These quarrels had more
 to do with emotions than logic and reason. Maria and Angela would try to
 impress her with Ferdinand's pomp and the magnificence of the rulers of Rome.
-She would reply by telling the legends of Tariq, Musa, Abdul Rehman the Great
+She would reply by telling the legends of Tariq, Musa, Abdul Rahman the Great
 and Yusuf bin Tashfeen.
 
 Maria and Angela would say that one of their priests had dreamt that God has

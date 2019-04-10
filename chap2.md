@@ -8,7 +8,7 @@ the Umayyad dynasty. Now this great nation, whose grandeur would silence the
 defiant waves of the Mediterranean, was writing its closing chapter with tears
 of hopelessness. That tree of culture and civilization, grown by the
 chivalrous Tariq bin Ziyad, Musa bin Naseer and the successors of Abdul
-Rehman, was now facing the strong and defiant winds of autumn.
+Rahman, was now facing the strong and defiant winds of autumn.
 
 The Muslims entered this country like a storm. When all the walls of
 opposition broke down and the people of Spain laid their arms down in front of
@@ -39,7 +39,7 @@ these deserted places, reply to us saying, "Yes! This Spain is the same
 Andalus that belonged to the Arabs, whose power and majesty has become a
 legend of the past. This Rock of Gibraltar is the same one where Tariq bin
 Ziyad's ships had anchored. Cordova is that very city where the pompous courts
-of Abdul Rehman III would leave the ambassador of great emperors absolutely
+of Abdul Rahman III would leave the ambassador of great emperors absolutely
 awestruck. This Andalus is the same, however, the nation whose sweat and blood
 bestowed life and beauty to its ashes has been obliterated. Buried beneath
 these ruins lie the bodies of the glorious builders who made this country a

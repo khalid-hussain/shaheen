@@ -1,9 +1,11 @@
+
 # Crime and its Punishment
 
 The next day John Michael's maidservant brought a letter to Maria from him.
 Reading the letter she could not believe that it was written by Michael. Every
-now and then she would enquire from the maidservant, "Is this really written by
-him?" And the maidservant would have to swear by the Holy Mary to convince her. 
+now and then she would enquire from the maidservant, "Is this really written
+by him?" And the maidservant would have to swear by the Holy Mary to convince
+her.
 
 John Michael had apologized with extreme humility and modesty. He had written,
 "I am at a loss of words to express how regretful and sorry I am for my
@@ -434,7 +436,7 @@ screams of thousands of helpless girls. He must be seeing their tears. In this
 storm of tears and sighs, the sound of my voice wouldn't even be recognizable to
 him. Standing on a peak of a mountain, instead of mentioning my name to the
 moon, he must be saying to it, 'You have seen the rise of my nation. Today have
-a look at its fall. You have witnessed the majesty of Tariq and Abdul Rehman in
+a look at its fall. You have witnessed the majesty of Tariq and Abdul Rahman in
 this land. Today have a look at Abu Abdullah's humiliation and disgrace. You
 must have seen those mujahids who had burned their ships at the shores of
 Andalus. Today have a look at these nation sellers who are receiving the price

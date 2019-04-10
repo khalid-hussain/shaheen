@@ -48,7 +48,7 @@ He read his palm and pointing to a few lines of his hand said, "O Prince! You
 were not born to rule over Granada."
 
 Seeing the disturbance on Abu Abdullah's face, he smiled and said, "For you
-these lines point towards Alexander's destiny and Abdul Rehman the Great's
+these lines point towards Alexander's destiny and Abdul Rahman the Great's
 majesty. If my knowledge does not fail me, then, banners of your authority
 will flutter from Pyrenees to Gibraltar. The rulers of Morocco and France will
 be your vassals.

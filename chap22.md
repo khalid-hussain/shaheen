@@ -428,7 +428,7 @@ enough from your side if you can take the orphans and wives of those friends of
 mine, who have been martyred in the past battles, along with you to some safe
 place. Do their upbringing. Make these orphaned children capable enough so that
 they grow up and are able to do _jihād_. It is possible that a Tariq or Abdul
-Rehman would come out of them."
+Rahman would come out of them."
 
 Rabia said, "I will obey your orders."
 
@@ -482,7 +482,7 @@ witnessed the first ship of the Conquerors of Islam at the shores of Andalus.
 This is that very sun had seen, with wonder and amazement, the spectacular rise
 of Muslim Andalus for close to eight hundred years. This was that very sky on
 whose wide chest the legends of prestige and majesty of the successors of Tariq
-and Abdul Rehman were carved. This was that very sea whose waves served as a
+and Abdul Rahman were carved. This was that very sea whose waves served as a
 whip for mujhadeen's passion of the sea but today this sea, this sky and this
 sun were seeing tears of helplessness in the eyes of this nation's daughters and
 children whose martyrs had granted charm and gracefulness to the specks of the
