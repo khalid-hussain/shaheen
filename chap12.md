@@ -1,7 +1,7 @@
 
 # The Man in Black
 
-The rumor of Badr Bin Mughira's assassination spread in the length and breadth
+The rumor of Badr bin Mughira's assassination spread in the length and breadth
 of Andalus like wildfire. It was Abu Abdullah's wish for this news not spread
 among the people of Granada but Abu Dawood advised him that this news would
 dishearten Abul Hassan's supporters. So, a few paid orators were assigned to
@@ -30,7 +30,7 @@ attack Malaga. We anticipate that you will be able to capture Malaga by that
 time. However, if you are unable to capture Malaga due to stiff resistance of
 the enemy, which I doubt, then the ruler of Cadiz will come to your aid."
 
-Abu Abdullah thought that after assassinating Badr Bin Mughira, he had cleared
+Abu Abdullah thought that after assassinating Badr bin Mughira, he had cleared
 every thorn in Ferdinand's path. He was confident that his ally and patron
 would not burden his shoulders with another war. He would descend on Malaga
 like a storm and return after annihilating his enemies and after recognizing
@@ -72,7 +72,7 @@ Sierra Nevada ravaging the cities South West of Granada and for another part
 of the army to be given under an experienced general to subdue the border
 tribes in the North East.
 
-When Ferdinand's army entered Badr Bin Mughira's independent territory, they
+When Ferdinand's army entered Badr bin Mughira's independent territory, they
 hardly faced any stiff resistance apart from an attack or two from the rear
 and the side flanks. The Christians had destroyed a number of cities along
 their path and marched in the Frontier Falcon's territory in high spirits. One
@@ -93,7 +93,7 @@ unprecedented situations. The rear flank was suddenly attacked by a thousand
 horsemen who killed three thousand men within moments of the attack and
 disappeared into the forest.
 
-Badr Bin Mughira's biggest success was that after an attack or two, he had
+Badr bin Mughira's biggest success was that after an attack or two, he had
 maneuvered the enemy's army into dangerous gorges and pathways where every
 cliff could become an impregnable fort for the attackers. Some seasoned
 officers of the Christian army advised their general to change their route but
@@ -184,19 +184,19 @@ A day before Abu Abdullah left Granada with his army, Ferdinand's army had
 been annihilated and three days later, the Frontier Falcon's warriors had
 rallied under Al-Zeghel's banner. Al-Zeghel's army feared the enemy's size but
 their morale was boosted when they heard about the glorious victory. Al-Zeghel
-inspected all the checkposts around his camp alongwith Badr Bin Mughira and
-Mansour Bin Ahmed. Apart from Badr Bin Mughira's men, no one knew that he was
+inspected all the checkposts around his camp alongwith Badr bin Mughira and
+Mansour Bin Ahmed. Apart from Badr bin Mughira's men, no one knew that he was
 alive. On seeing a veiled person with Al-Zeghel they would believe that after
-the snatching of Badr Bin Mughira, destiny had given them a new supporter. His
+the snatching of Badr bin Mughira, destiny had given them a new supporter. His
 camp was a little away from the encampment of the rest of the army and only a
 few selected officers of Al-Zeghel's army, who knew about this secret, had the
 permission to go there.
 
 The bellicose tribes of Alpujarras thronged under Al-Zeghel's banner. After a
 long time, they got a chance to fight alongside the mujahideen of the falcon's
-territory. Because Mansour Bin Ahmed used to be considered Badr Bin Mughira's
+territory. Because Mansour Bin Ahmed used to be considered Badr bin Mughira's
 successor, therefore, they requested Al-Zeghel to give them under Mansour Bin
-Ahmed's command. Mansoor prepared the battle map according to Badr Bin
+Ahmed's command. Mansoor prepared the battle map according to Badr bin
 Mughira's instructions and spread the tribal mujahideen on the entire
 pathways. He instructed them to seal the areas behind the Christian army as it
 advanced forward.
@@ -211,7 +211,7 @@ After burning a few settlements and capturing a few men and women during their
 three-day advancement, Ferdinand's battalion had finally entered this
 dangerous territory where the falcons of the frontier were anxiously waiting.
 
-Badr Bin Mughira attacked the enemy's vanguard troops with a thousand of his
+Badr bin Mughira attacked the enemy's vanguard troops with a thousand of his
 elite warriors and vanished into the mountains after devastating them. While
 the General was coming to terms with the situation, he got the news of a rear
 attack by the tribes. This area was not wide enough for a full-fledged battle.

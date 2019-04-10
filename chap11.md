@@ -2,13 +2,13 @@
 # The Mujahid and the Traitor
 
 With mixed thoughts Abu Dawood was moving towards that very court where,
-according to him, the fate of Badr Bin Mughira, and with him the fate of
+according to him, the fate of Badr bin Mughira, and with him the fate of
 Granada too was going to be decided.
 
 He would suddenly halt while walking and would continue walking forward
 without coming to a conclusive decision. For the first time in his life he
 felt that he was loosing self-control. A moment ago, he had cleared every
-hurdle of his path to reach the final peak of his rise. Getting Badr Bin
+hurdle of his path to reach the final peak of his rise. Getting Badr bin
 Mughira into his net of deception was his life's biggest achievement. Against
 this he could have asked Ferdinand for the biggest prize possible. He had
 cleared the way to Granada for Ferdinand forces. A few days ago when he had
@@ -33,7 +33,7 @@ save the Frontier Falcon's life? A situation that would not jeopardize my
 future?"
 
 His mind would reply nothing but "No" to all these questions. He knew very
-well that Badr Bin Mughira's fate would be decided tonight and he won't be
+well that Badr bin Mughira's fate would be decided tonight and he won't be
 able to defend him without demolishing the forts of his hopes. He thought,
 "Even if I am able to save him, I would not be able to remove the hatred in
 his heart that he has for me. He would oppose every wish of mine even after he
@@ -55,7 +55,7 @@ respect. He responded by waving his hand in reply to their salutations and
 made his way towards the throne where Abu Abdullah sat. After bowing and
 greeting Abu Abdullah, he then sat on a vacant seat.
 
-Badr Bin Mughira stood right in front of the throne between the two rows of
+Badr bin Mughira stood right in front of the throne between the two rows of
 the nobles' seats. His hands were handcuffed and his face glowed with rage.
 After softly enquiring from a chief seated beside him, Abu Dawood found out
 that he had finished his statement. The chief also told him that his words
@@ -63,14 +63,14 @@ were intolerable for everyone. For Abu Abdullah he had said that not only was
 he ill-natured but also a fool and in both cases he found him pitiable.
 
 For a while the nobles and scholars whispered amongst themselves while Abu
-Abdullah looked at Badr Bin Mughira in amazement, anguish, uneasiness and
+Abdullah looked at Badr bin Mughira in amazement, anguish, uneasiness and
 bewilderment. Finally, he spoke. "We are giving you another chance. If you
 accept our government we will release you after a brief confinement."
 
-Badr Bin Mughira replied, "I have already responded to this. I don't beg for
+Badr bin Mughira replied, "I have already responded to this. I don't beg for
 my life from cowards. I refuse to acknowledge the government of a person who
 is God's rebel, who is the people's traitor, who is an enemy of his father."
-Badr Bin Mughira's glance fell on Abu Dawood and he raised his voice and said,
+Badr bin Mughira's glance fell on Abu Dawood and he raised his voice and said,
 "Abu Abdullah! You are nurturing snakes under your sleeve and you think that
 they will only bite your enemies? But you are unaware of a snake's nature.
 They are friends to no one. You think that my crime is to wage war against
@@ -95,16 +95,16 @@ disrespectful way of addressing by the criminal is unbearable for your
 loyalists." The rest of the of the chiefs and scholars got up one after the
 other in his support.
 
-Badr Bin Mughira said, "Unfortunate is that being who thinks such people are
+Badr bin Mughira said, "Unfortunate is that being who thinks such people are
 his loyalists. Abu Abdullah! These people are vultures that nurture on
 people's corpses. By relying on them you are pushing yourself alongwith
 Granada onto a path of destruction."
 
-Abu Abdullah got up and said in a trembling voice, "I give Badr Bin Mughira
+Abu Abdullah got up and said in a trembling voice, "I give Badr bin Mughira
 the death penalty for being the greatest enemy of the Sultanate of Granada.
 The criminal should be killed before sunrise."
 
-Badr Bin Mughira stood like a rock. To date no such criminal had ever stood in
+Badr bin Mughira stood like a rock. To date no such criminal had ever stood in
 this chamber of the Al-Hamra who had listened to his death penalty with such a
 pleasant and glamorous smile. His silence said this about his current
 situation, "I have always played with death. You can put me to death but you
@@ -129,20 +129,20 @@ more horrible."
 For the first time in his life he realized that "the biggest success for a
 person in life is to conquer the fear of death. This is his greatest victory
 and this victory is achieved only by those who understand that life and death
-is only for the sake of the Almighty. Unlike me, Badr Bin Mughira has learned
+is only for the sake of the Almighty. Unlike me, Badr bin Mughira has learned
 to fight not for himself but for God. For him God is not an imaginary force
 but a reality. A reality that compels him to stand in the face of death like a
 rock. Alas! I wish I could conquer death in the same manner." Abu Dawood began
 to view the entire palaces of his ideas nothing more than heaps of sand.
 
 Abu Abdullah got up from his throne and went into in a room in the rear. The
-guards took Badr Bin Mughira outside and one after the other the chiefs and
+guards took Badr bin Mughira outside and one after the other the chiefs and
 scholars congratulated Abu Dawood on his marvelous victory but he felt as if
 they were mocking him. A slave approached him and said that Abu Abdullah was
 waiting for him in the other room.
 
 Moments later Abu Dawood was in a beautiful chamber seated in front of Abu
-Abdullah. The inferiority that he felt in front of Badr Bin Mughira gradually
+Abdullah. The inferiority that he felt in front of Badr bin Mughira gradually
 withered away in the company of Abu Abdullah. The self-styled Sultan of
 Granada considered him to be a supernatural being. When he entered the room,
 Abu Abdullah stepped forward and after shaking Abu Dawood's hand, bent and
@@ -156,7 +156,7 @@ make hundreds of the likes of Abu Abdullah dance to my tunes. I have cleared
 the path for my success in this world. I will keep treading this path and with
 every new success the people who respect me will grow even more. And while
 dying I would not have the bitter regret that any of my wishes were not
-fulfilled. I should not think about Badr Bin Mughira. His world is different
+fulfilled. I should not think about Badr bin Mughira. His world is different
 from my world. Thinking about him will cause me nothing else but concern. I
 belong to the world where idiots like Abu Abdullah reside. I have been born to
 be a leader and guide to hundreds of such people. I have been born to drive
@@ -193,20 +193,20 @@ that we spend the rest of the night here."
 
 Abu Dawood replied, "I am willing to sit with you untill the afternoon."
 
-Badr Bin Mughira was maneuvered from complex underground pathways into a cell
+Badr bin Mughira was maneuvered from complex underground pathways into a cell
 whose door was only opened on such occasion. Besides the eight soldiers
-accompanying Badr Bin Mughira, there were guards standing at every step of the
+accompanying Badr bin Mughira, there were guards standing at every step of the
 way. The cell had a torch alight and the executioner stood waiting for him.
-Without facing any resistance from Badr Bin Mughira, the soldiers tied his
+Without facing any resistance from Badr bin Mughira, the soldiers tied his
 wrists onto an iron rack.
 
 At the jailer's cue, the soldiers went out and he closed the door and said to
-Badr Bin Mughira, "This might seem like a routine statement but your death
+Badr bin Mughira, "This might seem like a routine statement but your death
 will grieve me like no other death. So, I ask you, not in the capacity of the
 jailer of Al-Hamra, but as someone who sympathizes with you, would you like to
 express a wish that I am able to fulfill before your death?"
 
-Badr Bin Mughira replied, "I know you're helpless. There is one wish that
+Badr bin Mughira replied, "I know you're helpless. There is one wish that
 might be possible for you to fulfill and that is that someday if you might
 have to execute Abu Abdullah on the orders of Abu Dawood or anyone of his
 comrades, then, do not use this cell for this purpose. I do not want his blood
@@ -252,7 +252,7 @@ After the royal ladies and Angela entered, the jailer closed the door and
 said, "Would you like to say something to the criminal?"
 
 Abu Abdullah's mother whispered to the jailer and said, "Do you also believe
-that Badr Bin Mughira is a criminal?"
+that Badr bin Mughira is a criminal?"
 
 The jailer looked at her in amazement. Abu Abdullah's mother removed her
 necklace and handed it over to him and said, "This is your reward."
@@ -275,19 +275,19 @@ completed all the preparations. Set him free."
 The jailer gestured to the executioner, who immediately took the bangles from
 the hands of Abu Abdullah's wife.
 
-Badr Bin Mughira's face was towards the other side. He had listened to their
+Badr bin Mughira's face was towards the other side. He had listened to their
 conversation and his eyes swelled with tears of gratitude for the Supreme
 Being who never forgets his slaves no matter what.
 
 The executioner unlocked the shackles.
 
-Badr Bin Mughira got up, turned around and looked at his benefactors. The
+Badr bin Mughira got up, turned around and looked at his benefactors. The
 Queen Mother moved forward and said, "Son! Consider me like your mother. We
 have done our duty but if you take this as a favor then when the time comes,
 do not take revenge from Abu Abdullah but consider him to be someone who
 deserves sympathy."
 
-Badr Bin Mughira replied, "I still think he deserves sympathy. I have seen how
+Badr bin Mughira replied, "I still think he deserves sympathy. I have seen how
 helplessly he's surrounded by the nation sellers."
 
 Abu Abdullah's wife said tearfully, "I want to take a pledge from you that is
@@ -295,7 +295,7 @@ that you won't ever become disheartened and leave the people of Granada. Not
 only every woman of Granada, but also of Andalus considers you as their
 benefactor."
 
-Feeling touched, Badr Bin Mughira replied, "My sister! Granada is Muslim
+Feeling touched, Badr bin Mughira replied, "My sister! Granada is Muslim
 Andalus' last bastion. My comrades and I will protect it until our last
 breath."
 
@@ -308,19 +308,19 @@ remain underground until Abu Abdullah regrets his doings. Otherwise these
 people, instead of you would have to go underground, and the traitors of the
 Sultanate would have the upper hand in Al-Hamra."
 
-Badr Bin Mughira replied, "Rest assured. Apart from a few reliable people, no
+Badr bin Mughira replied, "Rest assured. Apart from a few reliable people, no
 one would know about my life. I have to remain underground for a very great
 purpose."
 
 The Queen Mother said, "May God be your protector and supporter."
 
-So far Angela was silently looking at Badr Bin Mughira. Badr Bin Mughira took
+So far Angela was silently looking at Badr bin Mughira. Badr bin Mughira took
 notice of her. She nervously took a step forward and said hesitantly, "Don't
 worry about Rabia. It was difficult for her to come here."
 
 Abu Abdullah's wife said, "We are obliged to Angela who warned us in good time."
 
-Bringing a smile of appreciation to his face, Badr Bin Mughira said, "Angela,
+Bringing a smile of appreciation to his face, Badr bin Mughira said, "Angela,
 I'm sure your physician will enquire about you. If you want to convey
 something, I'm willing to act as a messenger."
 
@@ -328,16 +328,16 @@ For a moment, ever drop of blood in her veins gathered up onto her cheeks.
 After entering this cell, her biggest concern was to say something about
 Bashir Bin Hassan. She had no hope that he would be a point of discussion. And
 she also knew she would be at a loss of words even if he was mentioned. But it
-was as if Badr Bin Mughira had opened the gates of heaven for her. She said,
+was as if Badr bin Mughira had opened the gates of heaven for her. She said,
 "He is my benefactor...Please present him this handkerchief on my behalf."
 
 Angela reluctantly stepped forward and handed a red colored handkerchief to
-Badr Bin Mughira.
+Badr bin Mughira.
 
 The royal ladies had understood volumes by their feminine instincts.
 Therefore, they remained silent.
 
-On the Grand Master's suggestion Badr Bin Mughira was put on a plank that was
+On the Grand Master's suggestion Badr bin Mughira was put on a plank that was
 placed in the cell to carry the dead body. A sheet was put over him.
 
 The jailer opened the door of the cell. All the three ladies went out. The
@@ -356,7 +356,7 @@ The jailer called four men inside to carry the corpse and permitted the others
 to leave.
 
 After a while the four men carried out the plank on their shoulders on which
-Badr Bin Mughira lay and walked behind, following the Grand Master and the
+Badr bin Mughira lay and walked behind, following the Grand Master and the
 jailer. After passing through several complex pathways they came and stood in
 front of a wall. It appeared that there was no way to move forward. Handing
 over the torch to the Grand Master, the jailer turned an iron latch mounted on
@@ -397,7 +397,7 @@ satisfied. There wasn't even a drop of blood."
 The Grand Master said, "The executioner must have taken care of that
 deficiency by now."
 
-Badr Bin Mughira removed the sheet and threw it to one side. He got up, moved
+Badr bin Mughira removed the sheet and threw it to one side. He got up, moved
 forward and said, "I believe I do not have to take your permission to come
 back to the world of the living."
 
@@ -408,7 +408,7 @@ The Grand Master said, "Our sphere of influence and control ends at the banks
 of this side of the river. The water is cold and rough. If you can't trust
 your arms, we can make other arrangements. But time is scarce."
 
-Badr Bin Mughira said, "Don't worry. The Supreme Being that had stopped the
+Badr bin Mughira said, "Don't worry. The Supreme Being that had stopped the
 hands of the executioner at my neck can certainly save me from these defiant
 waves."
 
@@ -416,10 +416,10 @@ The Grand Master said, "Very well, goodbye! Today you had entered from the
 backdoor of Al-Hamra and you're leaving from a backdoor as well. We will wait
 for the day when the main gate of Al-Hamra is opened for you."
 
-Badr Bin Mughira bid farewell and advanced towards the river bank and after a
+Badr bin Mughira bid farewell and advanced towards the river bank and after a
 brief hesitation, plunged into the river.
 
-Badr Bin Mughira sat on a rock on the other side of the river to catch his
+Badr bin Mughira sat on a rock on the other side of the river to catch his
 breath.
 
 The clouds had cleared in the sky and the stars were shining bright. As Badr
@@ -439,25 +439,25 @@ ladder and apprise us of the actual situation."
 "Maybe he could not find the time for that. If you want to wait longer then we
 should remain standing at this place."
 
-Badr Bin Mughira called out, "Mansoor!"
+Badr bin Mughira called out, "Mansoor!"
 
 Both of them stopped, turned around, ran towards him and embraced him. The
 second person was Bashir Bin Hassan.
 
-Fed up with the bombardment of queries by his friends, Badr Bin Mughira said,
-"Come on. Let's get out of here." While walking, Badr Bin Mughira put his hand
+Fed up with the bombardment of queries by his friends, Badr bin Mughira said,
+"Come on. Let's get out of here." While walking, Badr bin Mughira put his hand
 on Bashir Bin Hassan's shoulder, said something in his ear and simultaneously
 placed a wet handkerchief in his hand.
 
 Mansoor turned around, looked towards them and said, "Looks like you have not
 come back on your own wishes."
 
-Badr Bin Mughira replied, "You are right in your assessment."
+Badr bin Mughira replied, "You are right in your assessment."
 
 Bashir Bin Hassan said, "I think we're out of the danger zone. Let's have your
 story now."
 
-Badr Bin Mughira gave a brief account of his story while walking. After
+Badr bin Mughira gave a brief account of his story while walking. After
 walking for about a mile, the three men passed through a dense garden and
 entered a dilapidated house. Here, five more of their comrades were guarding
 the horses.
@@ -465,7 +465,7 @@ the horses.
 After all of them got on their horses, Bashir Bin Hassan inquired, "Where do
 we intend to go now?"
 
-Badr Bin Mughira said, "I will go my way after a short distance. I will take
+Badr bin Mughira said, "I will go my way after a short distance. I will take
 these five soldiers with me into the forest. Mansoor! Send the Sultan's
 soldiers to Malaga as soon as it is morning and take your comrades and come to
 me. And Bashir! You go to Malaga. After apprisingAl-Zeghel and Al-Zaghairi

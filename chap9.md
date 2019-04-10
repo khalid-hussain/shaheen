@@ -275,10 +275,10 @@ you have taken Abul Hassan's place then he will have no objection in coming
 out of prison and serving you. Now get up. This is no time for thinking. This
 is the time to get work done."
 
-The next day after the victory of Loja, when Badr Bin Mughira returned after
+The next day after the victory of Loja, when Badr bin Mughira returned after
 chasing Ferdinand's troops, Abul Hassan called in a consultative council of
 the chiefs of the army. Some chiefs were of the opinion to return to Granada,
-make proper preparations and then invade Ferdinand's kingdom. But Badr Bin
+make proper preparations and then invade Ferdinand's kingdom. But Badr bin
 Mughira emphasized that Ferdinand should not be allowed to rest.
 
 He said, "If we were to invade right after this victory, the enemy would not
@@ -295,7 +295,7 @@ be far more than the troops we would be recruiting once we're in Granada. Our
 biggest challenge is maintaining a consistent supply of goods and provisions.
 And I take responsibility for that."
 
-Agreeing with Badr Bin Mughira's suggestions, Al-Zeghel said, "After this
+Agreeing with Badr bin Mughira's suggestions, Al-Zeghel said, "After this
 victory, we won't even face any stiff resistance upto the walls of Castile. We
 should not give the crumbling enemy any chance to stabilize. As far as getting
 more soldiers from Granada is concerned, I think there is not a more suitable
@@ -649,12 +649,12 @@ him. Gradually, he declined to see people wishing to meet him. In isolation he
 would spend most of his time shedding tears. Little by little he started
 loosing vision.
 
-One day Al-Zeghel and Badr Bin Mughira entered his room. When Al-Zeghel
+One day Al-Zeghel and Badr bin Mughira entered his room. When Al-Zeghel
 started the conversation by talking about his own future course of action, the
 Sultan said tearfully, "O my brother! Talk about something apart from this. We
 can fight with the enemy but not with our fate."
 
-Badr Bin Mughira replied, "The mujahid carves out his destiny with the point
+Badr bin Mughira replied, "The mujahid carves out his destiny with the point
 of his sword."
 
 Abul Hassan replied, "But my sword has been broken."
@@ -669,36 +669,36 @@ and whispered, "The Sultan's condition is not good. Your talk would only
 aggravate his physical and spiritual condition. The only remedy for him is to
 bring Abdullah onto the right path."
 
-Badr Bin Mughira looked at Al-Zeghel and said, "Abdullah can be brought to the
+Badr bin Mughira looked at Al-Zeghel and said, "Abdullah can be brought to the
 right path."
 
-The Sultan gave a startled look at Badr Bin Mughira and said remorsefully, "If
+The Sultan gave a startled look at Badr bin Mughira and said remorsefully, "If
 only someone could make him understand but he is not one of those who would."
 
-Badr Bin Mughira said, "He would be compelled to."
+Badr bin Mughira said, "He would be compelled to."
 
 "But I do not want a civil war among Muslims."
 
-Badr Bin Mughira said, "In a few days if he tries to have the correct
+Badr bin Mughira said, "In a few days if he tries to have the correct
 assessment of his strength against ours, then it would not reach a point for a
 civil war among Muslims."
 
-After this meeting, Al-Zeghel, Badr Bin Mughira, Al-Zaghairi and other army
+After this meeting, Al-Zeghel, Badr bin Mughira, Al-Zaghairi and other army
 officials decided, in a council, to restructure the army from scratch.
 
 Al-Zeghel sent a delegation to specific chiefs of the entire Sultanate. Badr
 Bin Mughira's fighters grouped into small bands and began propagating jihad.
 
-Badr Bin Mughira personally left Malaga with five hundred of his fighters and
+Badr bin Mughira personally left Malaga with five hundred of his fighters and
 reached the suburbs of Granada where he started the mission of mustering
 public opinion against Abu Abdullah.
 
 Abu Abdullah's troops tried to block their path but in vain. There were minor
-skirmishes at a few places between Abu Abdullah's troops and Badr Bin
-Mughira's cavalry where Badr Bin Mughira's cavalry defeated them and left them
+skirmishes at a few places between Abu Abdullah's troops and Badr bin
+Mughira's cavalry where Badr bin Mughira's cavalry defeated them and left them
 in the vicinity of the four walls of Granada.
 
-After a few weeks of running around, Badr Bin Mughira, with the cooperation of
+After a few weeks of running around, Badr bin Mughira, with the cooperation of
 the people living in the settlements near Granada, was able to completely
 cut-off all routes leading to it. The farmers also cooperated with him. They
 refused to send their produce to Granada. Seeing the effects of drought in the
@@ -707,5 +707,5 @@ gradually began to emerge and some of them began fleeing towards Malaqa.
 
 Feeling the sensitivity of the situation, Abu Abdullahsent five thousand
 troops to crush the Frontier Falcon but after a week helearned that two
-thousand out of them had joined Badr Bin Mughira while therest, after being
+thousand out of them had joined Badr bin Mughira while therest, after being
 defeated, burned a few settlements of the farmers and were ontheir way back.

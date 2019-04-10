@@ -14,7 +14,7 @@ of the palace's gate witnessing his grand procession. The enthusiasm of the
 people was a reminder of the past when the mujahedeen of Andalus would return
 after glorious victories in the north.
 
-People were showering flowers from rooftops. Badr Bin Mughira was dressed in
+People were showering flowers from rooftops. Badr bin Mughira was dressed in
 his usual white robe. But today he didn't have his face covered. He was
 flanked by Moosa on his right and Al-Zaghairi on his left. Another great
 warrior, Naeem Ridwan, held the reins of his horse and they all were led by a
@@ -39,12 +39,12 @@ him there myself."
 
 Abul Hassan said, "No. Now since the question of the honor of the royal
 household has been raised by Abu Abdullah, it is important to have it
-addressed. I will personally go out to receive Badr Bin Mughira. Order all the
+addressed. I will personally go out to receive Badr bin Mughira. Order all the
 nobles who have gathered in the court to come out and send a garland of
 flowers for me and let Moosa know that he should wait a little more with the
 procession at the gate."
 
-The people stood around Badr Bin Mughira in front of the gate of the fort,
+The people stood around Badr bin Mughira in front of the gate of the fort,
 raising thundering slogans. Moosa moved forward on his horse clearing the way.
 However, before the procession could move forward the Administrator of the
 Royal Court came running out, reached close to Moosa and said, "It's the royal
@@ -53,15 +53,15 @@ order that the honorable guest should be stopped here for a while."
 After a while, Abul Hassan along with the nobles of the Sultanate appeared
 from the door and the people looked at him in amazement. Seeing Abul Hassan
 coming down the stairs, Moosa and Al-Zaghairi quickly climbed down their
-horses. Naeem Ridwan, who was holding the reins of Badr Bin Mughira's horse,
-turned around and said, "His Royal Highness himself is coming." Badr Bin
+horses. Naeem Ridwan, who was holding the reins of Badr bin Mughira's horse,
+turned around and said, "His Royal Highness himself is coming." Badr bin
 Mughira jumped off his horse.
 
 In the meantime, Abul Hassan had approached close to him. Instead of shaking
 his hand, he hugged him and put the garland of flowers around his neck. He
 then took the flag from the flag bearer and after kissing it, said, "Moosa!
 Give the good news to the people of Granada that from today the Frontier
-Falcon's flag shall flutter over our palace. Our flags have rotted. Badr Bin
+Falcon's flag shall flutter over our palace. Our flags have rotted. Badr bin
 Mughira has brought us a new flag. Our swords were rusted. Nature has given us
 someone who would give them a new shimmer. We are thankful that the honorable
 guest has obliged us with his presence."
@@ -74,7 +74,7 @@ the speech:
 "People of Granada! Today you have among you that great mujahid, who has
 written his name in the history of Andalus with the tip of his sword, who has
 defeated Ferdinand's tiny-hearted army several times with a handful of
-mujahideen. Badr Bin Mughira, your Frontier Falcon, has come to you with a
+mujahideen. Badr bin Mughira, your Frontier Falcon, has come to you with a
 message and that message is that if a nation is willing to bathe in blood and
 is ready to jump into fire for its honor and liberty, then, no power on earth
 can defeat it."
@@ -136,14 +136,14 @@ only swords are made in our mint factory. And we have given him this reply
 with the confidence that our swords can defend our freedom."
 
 After Moosa's speech the people started shouting, saying that they wanted to
-hear something from the Frontier Falcon. Abut Hassan looked at Badr Bin
+hear something from the Frontier Falcon. Abut Hassan looked at Badr bin
 Mughira and said, "Please do say a few words. Never has such a large crowd
 gathered in front of my palace."
 
-In a state of confusion, Badr Bin Mughira looked here and there but Moosa held
+In a state of confusion, Badr bin Mughira looked here and there but Moosa held
 him by his hand and made him stand on the stairs.
 
-For Badr Bin Mughira, addressing such a large audience was a big challenge.
+For Badr bin Mughira, addressing such a large audience was a big challenge.
 For a while he kept staring at the crowd in a state of confusion. Finally, he
 began his speech reluctantly:
 
@@ -183,7 +183,7 @@ the swords. People of Granada! A time comes in the lives of a nation when the
 language of the sword becomes more appropriate than that of the pen and for
 you that time has arrived."
 
-After Badr Bin Mughira's speech, when the crowd was cheering, Abul Hassan
+After Badr bin Mughira's speech, when the crowd was cheering, Abul Hassan
 said, "I am desperate to talk to you. Abu Moosa will bring you to me after
 this procession is over."
 
@@ -195,13 +195,13 @@ against an enemy. After several years, Muslim soldiers and nobles of
 Hispanian, Berber and Arab descent had assembled under one flag.
 
 Abul Hassan first inspected the army before ordering them to depart and then
-said to Badr Bin Mughira, "Badr! You have joined hearts that were broken. By
+said to Badr bin Mughira, "Badr! You have joined hearts that were broken. By
 God! If the Arab, Berber and Hispanian Muslims stood like this
 shoulder-to-shoulder, then, there is no reason for us to be ashamed in front
 of our forefathers on the Day of Judgment. Once again we will reach upto
 France."
 
-Badr Bin Mughira replied, "I'm sure till such time that your sword is out of
+Badr bin Mughira replied, "I'm sure till such time that your sword is out of
 the scabbard, there won't be any discord among the people of Granada. They
 needed a platform to have a united front. Until our swords keep clashing with
 the Christians, the attention of the Muslims won't be diverted to these
@@ -216,7 +216,7 @@ Abul Hassan did not include any foot soldiers in the contingent of this
 mission and charging with amazing speed reached the Valley of Lakka.
 
 Moosa Bin Abi Ghassan was his deputy commander while the charge of the
-storming units of the vanguard troops was given under Badr Bin Mughira.
+storming units of the vanguard troops was given under Badr bin Mughira.
 
 After capturing a few border areas, Abul Hassan besieged Sakhra and when this
 news reached Cordova, a wave of jubilation spread among the people. The
@@ -256,7 +256,7 @@ King. A soldier's place is in the battlefield not here."
 The armor-clad soldier raised his neck for a few moments and replied, "Please
 don't waste my time. The injured man's condition is very critical."
 
-Badr Bin Mughira jolted after hearing the voice of the armor-clad soldier but
+Badr bin Mughira jolted after hearing the voice of the armor-clad soldier but
 since only his eyes were visible because of the aventail he was wearing,
 therefore, Badr could not immediately recognize him. The Commander of the
 Medical Corps was bewildered and said, "If you're so fond of dressing wounds
@@ -278,7 +278,7 @@ man but the armor-clad soldier stopped him and said, "His death is inevitable
 if you open his dressing. I would not have interfered in your work but please
 recall that you had left him thinking that he's incurable."
 
-By this time Badr Bin Mughira's skepticism were far from removed. Besides his
+By this time Badr bin Mughira's skepticism were far from removed. Besides his
 voice, he had also recognized his bag. He was also quite familiar with the
 hands that had treated his wounds on a number of occasions. His amazement
 changed to happiness. He said to the Commander of the Medical Corps, "Don't
@@ -326,7 +326,7 @@ Abul Hassan said, "We apologize for not taking that into account. Please
 continue. Have a look at other injured soldiers and do meet me when you are
 done."
 
-Abul Hassan, Badr Bin Mughira and Moosa went away while Bashir Bin Hassan
+Abul Hassan, Badr bin Mughira and Moosa went away while Bashir Bin Hassan
 continued tending to the needs of the wounded. Like the other cities of
 Andalus, his fame had also reached Granada.
 
@@ -350,7 +350,7 @@ opens his eyes. He'll go back to sleep as soon as he drinks the medicine. In
 the evening, I will come and have a look at him myself. In the meantime, make
 sure that no one wakes him or tries to talk to him."
 
-In the afternoon when Badr Bin Mughira got to speak to Bashir in private, he
+In the afternoon when Badr bin Mughira got to speak to Bashir in private, he
 asked his friend of his unexpected arrival. Bashir Bin Hassan replied, "It was
 my greatest wish to witness the departure of Abul Hassan's army with my own
 eyes but I got this news only when the army had departed from Granada. But
@@ -361,7 +361,7 @@ permission. On reaching Granada I came to know that you had besieged Sakhra. I
 charged away and reached here this morning only to learn that the city has
 been captured."
 
-Badr Bin Mughira said while smiling, "And since I was not injured, therefore,
+Badr bin Mughira said while smiling, "And since I was not injured, therefore,
 your medicines were used for the benefit of others. Tell me honestly, wasn't
 all this running around not for me?"
 
@@ -401,7 +401,7 @@ were silly. There was one who said something sensible too."
 When it walks it causes the land to shake. The shimmer of his sword blinds the
 eyes of the sun."
 
-Badr Bin Mughira said, "Bashir, is it the victory or some other reason for your happiness."
+Badr bin Mughira said, "Bashir, is it the victory or some other reason for your happiness."
 
 Bashir replied, "Badr! I'm really very happy. I strongly feel that the time
 has arrived for the dreams of several years to be realized."

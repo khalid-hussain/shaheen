@@ -148,14 +148,14 @@ coachman. The poor soul has been injured very badly."
 
 After three days, Rabia's headache had eased considerably but because of the
 pain in her knee, she could not walk without support. The cavalryman who had
-saved her life and the physician treating her were Badr Bin Mughira and Bashir
+saved her life and the physician treating her were Badr bin Mughira and Bashir
 Bin Hassan. Abu Dawood was surprised how The Frontier Falcon suddenly reached
 there for their help. In the past three days, he had, more or less, gained the
-trust of Badr Bin Mughira after telling Ferdinand and his rulers' tales of
+trust of Badr bin Mughira after telling Ferdinand and his rulers' tales of
 oppression. After Friday prayers, he delivered a passionate speech in front of
-Badr Bin Mughira's comrades depicting a sorry state of the Christian's Muslim
+Badr bin Mughira's comrades depicting a sorry state of the Christian's Muslim
 subjects in Andalus, leaving the crowd emotional. Then, he narrated
-spirit-elevating stories of Andalus. He praised Badr Bin Mughira's and his
+spirit-elevating stories of Andalus. He praised Badr bin Mughira's and his
 comrades war of independence immensely and concluded, "We should not have any
 misunderstand about our future. If we do not decide to unite and organize for
 a decisive war against Ferdinand, then, we would gradually be annihilated. My
@@ -165,7 +165,7 @@ listening to the atrocities, Abul Hassan will not delay in pronouncing jihad
 against the enemies of Islam.
 
 After the speech, when he was returning with Badr and Bashir to his room,
-then, Badr Bin Mughira said, "Once you are in Granada, you'll be able to pump
+then, Badr bin Mughira said, "Once you are in Granada, you'll be able to pump
 a new spirit into the Muslims."
 
 Abu Dawood replied in grief, "I'm just doing my duty. But people don't usually
@@ -233,7 +233,7 @@ Bashir asked, "The girl didn't agree to get married to the youth of the royal fa
 
 "No. The youth had lost an eye after an arrow hit it."
 
-Badr Bin Mughira posed a question, "So, how did you get here?"
+Badr bin Mughira posed a question, "So, how did you get here?"
 
 "I did this judiciously and stopped opposing the proposal. I asked a friend of
 mine to write a letter and took the help of his servant to deliver the letter
@@ -302,7 +302,7 @@ Abu Dawood said, "Your territory is quite far from our path. Granted that a
 falcon's territory of flight is not defined but you came to our rescue as if
 you were standing there all prepared beforehand."
 
-Badr Bin Mughira replied, "Actually, our relations with the Sultanate of
+Badr bin Mughira replied, "Actually, our relations with the Sultanate of
 Granada have recently become quite cordial. They have handed over the security
 of some of the areas of this region to me and sometimes I have to go out
 inspecting the check posts. Today, too, I came out to check whether the guards
@@ -319,16 +319,16 @@ guarding all of its borders then, it would be its good fortune."
 Abu Dawood said, "I do not know anyone in Granada. If you would be kind enough
 to give me a few good names, then, that would make it easy for me."
 
-Badr Bin Mughira said, "I will write to one such person through whom you will
+Badr bin Mughira said, "I will write to one such person through whom you will
 know the whole of Granada. But I think you might have to stay here for several
 days. Bashir, how long will it take their daughter to be able to walk?"
 
 Bashir replied, "God willing, she'll be completely healthy in a week's time."
 
 Because of its location, this fort in which Abu Dawood was staying as a guest
-of Badr Bin Mughira, was not safe from foreign attacks. Even its boundry walls
+of Badr bin Mughira, was not safe from foreign attacks. Even its boundry walls
 were not strong enough to withstand a major attack. After the meeting with
-Al-Zeghel, Badr Bin Mughira used to stay here occasionally whenever he came to
+Al-Zeghel, Badr bin Mughira used to stay here occasionally whenever he came to
 inspect the border check posts. This fort was within the Granada's border and
 since Castile and Granada had not declared war on each other, Badr felt no
 danger of an immediate attack and so he had stationed very few soldiers for
@@ -615,10 +615,10 @@ small stream.
 The access to this room was through two doors that opened into Abu Dawood's
 room. It also comprised a huge balcony facing the patio. On the right side of
 Abu Dawood's room was a small cabin where his coach man was recuperating and
-on its left side were the room of Badr Bin Mughira and Bashir Bin Hassan.
+on its left side were the room of Badr bin Mughira and Bashir Bin Hassan.
 Further down were lodges of the army officers.
 
-During the day, Badr Bin Mughira would hardly find the time to sit with Abu
+During the day, Badr bin Mughira would hardly find the time to sit with Abu
 Dawood. Early morning, he would set out on his horse to supervise the border
 check posts. Sometimes, he would stay out during the night too, but, in his
 absence, Bashir Bin Hassan would carry out the duties of Abu Dawood's
@@ -676,7 +676,7 @@ the terrible sight with his own eyes. You don't know how much he respects you.
 Today he was saying that, God-willing, he would leave his children with me in
 Granada and join the ranks of your mujahideen."
 
-Badr Bin Mughira said, "How unfortunate that I did not show much interest in
+Badr bin Mughira said, "How unfortunate that I did not show much interest in
 him. Anyways, whenever he wants, my men will help him to get to the other side
 of the border."
 
@@ -686,7 +686,7 @@ morning itself."
 Angela and Maria were listening to their conversation at the door and both
 were looking at each other in amazement.
 
-Badr Bin Mughira got up and went to his room while Bashir and Abu Dawood
+Badr bin Mughira got up and went to his room while Bashir and Abu Dawood
 talked till late into the night Maria strolled restlessly in her room. She
 knew neither the coachman's wife nor his children were in Castile. Her concern
 was whether Abu Dawood would actually prove to be an enemy of the Christian
@@ -787,7 +787,7 @@ The governors of Cordova and Seville consider him their benefactor. He is
 wasting his precious time with these miscreants. His real place is not in the
 forest but in Castile's royal court. And as for his favors, I will take him
 there despite his opposition. I'm also sure that with his intercession, he
-will also be able to seek forgiveness for all of Badr Bin Mughira's past
+will also be able to seek forgiveness for all of Badr bin Mughira's past
 mistakes from the Queen and King."
 
 Angela's fear turned into joy. So far, she thought that her temporary interest
@@ -816,7 +816,7 @@ This imaginary happiness was not merely a pleasant breeze for Angela but a
 storm that, within moments, swept her from one place to another.
 
 But Rabia's condition was a lot different. The palace of her emotions were
-being demolished. She was seeing a shackled Badr Bin Mughira in Ferdinand's
+being demolished. She was seeing a shackled Badr bin Mughira in Ferdinand's
 court. Lilies of her hopes were withering away. The bright sky of hopes were
 falling one-by-one. She was being buried under the burden of hopelessness. She
 was suffocating. She wanted to scream...but only if she could scream. If only
@@ -881,10 +881,10 @@ this young rebel of the border was one person whom she felt closest to.
 Few hours earlier she thought that this rebel of the border was far away from
 every danger of the world and she would get fearful at this thought. A fear
 that a hiker feels while climbing the peak of an interesting but dangerous
-mountain. For her, Badr Bin Mughira was a heart-yearning oasis, a volcanic
+mountain. For her, Badr bin Mughira was a heart-yearning oasis, a volcanic
 mountain and a grisly iceberg all at the same time. Imagining his intimacy was
 as charming for her as much as being dangerous. But now after knowing about
-her father's evil intentions, Badr Bin Mughira was that tree in whose branches
+her father's evil intentions, Badr bin Mughira was that tree in whose branches
 she had already built her nest. This tree was now facing a flood of events.
 She wanted to save it from falling. She wanted to dig the hard earth with her
 delicate hands and put soil into its roots.

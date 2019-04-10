@@ -138,17 +138,17 @@ Abu Dawood thought of something and then looked at the King and said, "Your
 Highness! Maybe I didn't live up entirely to your expectations. It is possible
 that you don't feel the need for me for conquering Granada but there is still a
 front where you need me. Still there is strength in the wings of the frontier
-falcons. Even after Badr Bin Mughira's death there has been no difference in
+falcons. Even after Badr bin Mughira's death there has been no difference in
 their ferocity and agility."
 
 Ferdinand became startled and looked at Abu Dawood and said, "Do you know that
-Badr Bin Mughira is alive! You have deceived us."
+Badr bin Mughira is alive! You have deceived us."
 
 Abu Dawood replied, "As far as I know, he is dead. I had arrested him. Abu
 Abdullah had handed him over to the hangman, however, if a miracle from nature
 has saved him then I take the responsibility that I will present him alive in
 front of you. I would have to take a huge risk for this mission but if you
-promise to save my girls then I am ready to go for this mission. If Badr Bin
+promise to save my girls then I am ready to go for this mission. If Badr bin
 Mughira is alive, then, I will bring him to you. If he is not alive, then I take
 the responsibility of killing his successor and spreading anarchy among his
 group."
@@ -182,14 +182,14 @@ alive and would be waiting for my daughters in the next world."
 Ferdinand said, "I will dispatch my orders for the Governor of Loja today itself
 but before that you will have to tell us what are your chances of success."
 
-Abu Dawood replied, "Badr Bin Mughira wanted to marry my elder daughter, Rabia.
+Abu Dawood replied, "Badr bin Mughira wanted to marry my elder daughter, Rabia.
 If he is alive and if I am successful in convincing him that the King will
 forgive your past mistakes, then, for the sake of Rabia he would be willing to
 come along with me."
 
 The Queen and King were not ready to believe this but when Abu Dawood narrated
 the events, with necessary additions and deletions, of his stay at the fort and
-of the arrival of Badr Bin Mughira at Al-Hamra, then they believed him to a
+of the arrival of Badr bin Mughira at Al-Hamra, then they believed him to a
 certain extent.
 
 The King said, "What if he is not alive?"
@@ -245,7 +245,7 @@ destroyed by any Ferdinand of the enemy, but, there are their own Abu Dawood's
 among them who send them to the pangs of death. Goodbye, Al-Hamra! Farewell,
 Granada!!"
 
-A little after Isha prayers, Badr Bin Mughira was sitting with Bashir Bin
+A little after Isha prayers, Badr bin Mughira was sitting with Bashir Bin
 Hassan, Mansour Bin Ahmed and some other main commanders in a room of his
 mountain fort. A day before, his army had returned after conducting a successful
 assault at the border and now the details of a new attack was being finalized.
@@ -256,7 +256,7 @@ believe he is a spy. The soldiers say that he refused to give his statement in
 front of the Commander of the Border. His demand was that he should be presented
 in front of the Supreme Commander."
 
-Badr Bin Mughira said, "At the moment, put him in prison and present him in
+Badr bin Mughira said, "At the moment, put him in prison and present him in
 front of me tomorrow morning."
 
 The soldier said, "But he insists on meeting you right away. He says that he has
@@ -267,16 +267,16 @@ got an important piece of news."
 "He even refuses to tell his name. He says that if the Supreme Commander cannot
 meet him then he should be presented in front of Bashir Bin Hassan."
 
-After thinking for a while, Badr Bin Mughira said, "Who can he be? Fine, call
+After thinking for a while, Badr bin Mughira said, "Who can he be? Fine, call
 him!"
 
 After a while the soldiers brought Abu Dawood into the room. For a few seconds,
 Badr and his companions kept glaring at him in amazement and concern instead of
-anger. So far, Abu Dawood didn't believe that Badr Bin Mughira was actually
+anger. So far, Abu Dawood didn't believe that Badr bin Mughira was actually
 alive. After looking at him a few times with frightened glances, he spoke and
 said, "You must have been surprised to see me but I had to come."
 
-Badr Bin Mughira said, "Don't you think you have gone overboard in displaying
+Badr bin Mughira said, "Don't you think you have gone overboard in displaying
 your bravery?"
 
 "I know I deserve the worst punishment but even you cannot prescribe the
@@ -289,7 +289,7 @@ arms down."
 "No. What I have come to tell you is that the court of Loja has sentenced Rabia
 and Angela to be burned alive and if you want, you can save them."
 
-Badr Bin Mughira and Bashir Bin Hassan would at times be looking at each other
+Badr bin Mughira and Bashir Bin Hassan would at times be looking at each other
 and then at Abu Dawood. Their glances were saying that Abu Dawood is lying. He
 has brought a new trap for them but their heart was saying 'what if this news is
 true?' In their sight Abu Dawood was the meanest person ever but despite this
@@ -313,12 +313,12 @@ against the government, apostasy and insulting the church and court, and both of
 them have also been accused of the murder of Ferdinand's knight. Now they have
 been condemned to be burned alive."
 
-Badr Bin Mughira enquired, "When?"
+Badr bin Mughira enquired, "When?"
 
 Appearing a bit worried, Abu Dawood replied, "I was waiting for an appropriate
 time to reply to that question."
 
-Looking towards his companions, Badr Bin Mughira said, "Apart from Bashir and
+Looking towards his companions, Badr bin Mughira said, "Apart from Bashir and
 Mansoor, everyone can leave."
 
 When they had left the room, then Badr said, "Abu Dawood! A believer can't be
@@ -377,7 +377,7 @@ statement. At the moment I, I think whatever I have said so far is sufficient."
 Badr said, "I will not refuse your request but I am sure that your writing won't
 be more effective than your tongue."
 
-Badr Bin Mughira clapped his hands. A soldier entered inside. Badr said, "Take
+Badr bin Mughira clapped his hands. A soldier entered inside. Badr said, "Take
 him away and make preparations for his accommodation in a secure room. Take care
 of his food, drink and rest. Grant him the facility of writing but there should
 be no carelessness in guarding him."
@@ -430,7 +430,7 @@ turned him around after putting his hand on his pulse and said after opening his
 eyes, "He is dead. I think he poisoned himself."
 
 In the corner of one side of the room, a pen, an inkpot and some papers were
-lying on a small table Badr Bin Mughira picked up a few papers that had Abu
+lying on a small table Badr bin Mughira picked up a few papers that had Abu
 Dawood's writings on them. On Bashir's cue, the soldiers picked up Abu Dawood
 and lay him on the bed.
 
@@ -451,7 +451,7 @@ Badr said, "Bashir! Read it aloud. I have merely seen a few lines."
 
 Bashir got startled, looked towards his companions and started reading aloud.
 This was the content of the last letter from Abu Dawood that was addressed to
-Badr Bin Mughira:
+Badr bin Mughira:
 
 "You will get my letter at the time when I am not in this world. Without this
 disgraceful death I had no other way of convincing you that my news regarding
@@ -480,7 +480,7 @@ Angela and Rabia be punished and I have told you that they will be burned alive
 on the fourth of the next lunar month. You must be surprised as to why the court
 has given them so much time. At night if I had told you the reason then you
 would have suspected me even more. To get a time for a month I had to promise
-Ferdinand that if Badr Bin Mughira is alive then I will present him in front one
+Ferdinand that if Badr bin Mughira is alive then I will present him in front one
 you under one pretext or another. I had also promised him that I will create
 schism in the ranks of the mujahideen. Against this, Ferdinand promised to save
 the lives of Rabia and Angela.

@@ -147,7 +147,7 @@ Moosa was certain that the conditions of the treaty set by Ferdinand would be so
 humiliating that the citizens of Granada would not accept them. Therefore, when
 Abul Qasim left, against Moosa's wishes, for negotiations with Ferdinand, he
 commanded his army to be ready for a decisive attack. He also sent instructions
-for Badr Bin Mughira and his companions to be prepared. For three days, Abul
+for Badr bin Mughira and his companions to be prepared. For three days, Abul
 Qasim Abdulmalik kept negotiating the conditions of the treaty with Ferdinand
 and meanwhile in the mosques of Granada, Moosa's spirit-elevating speeches had
 infused a new life into the people of the city. Due to the fervor and enthusiasm

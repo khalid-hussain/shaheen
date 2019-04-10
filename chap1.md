@@ -85,7 +85,7 @@ said, "Our reply to friendship is friendship but the Frontier Falcon might
 object as to why you needed several armed individuals to deliver a message of
 peace?"
 
-The armor-clad rider replied, "I am sure Badr Bin Mughira's fighters won't be
+The armor-clad rider replied, "I am sure Badr bin Mughira's fighters won't be
 overwhelmed by fifty fighters from Granada. However, we need to enquire if he
 has any objection to this, we can ask these soldiers to return or else we can
 handover our weapons to you or our companions can stay on that side of the river
@@ -105,7 +105,7 @@ immediately a rider appeared and stopped by the river, sporting a white turban
 instead of a shining armor over his body and aventail over his head. He was a
 handsome youth of eighteen or nineteen years with a face that radiated with
 exceptional courage. He quickly took account of the troops on the other side of
-the river and said, "To meet Badr Bin Mughira you don't need any royal of
+the river and said, "To meet Badr bin Mughira you don't need any royal of
 Granada to intercede on your behalf. He would be more pleased to meet someone
 who is a pure soldier."
 
@@ -122,10 +122,10 @@ moved close to the armor-clad rider, dismounted his horse, held out his hand and
 said, "If you are indeed Moosa, then, without asking you another question, I put
 forward my hand of friendship."
 
-While shaking the youth's hand, Moosa said, "So, are you Badr Bin Mughira? I am
+While shaking the youth's hand, Moosa said, "So, are you Badr bin Mughira? I am
 amazed that..."
 
-Badr Bin Mughira interrupted him and said, "So, you are amazed as to why we
+Badr bin Mughira interrupted him and said, "So, you are amazed as to why we
 didn't recognize each other at first sight."
 
 Moosa said, "This is exactly what I wanted to say. I expected you to be much
@@ -143,13 +143,13 @@ Al-Zaighri and from the royal family the only person is Al-Zeghel."
 Moosa replied, "We could not bring Al-Zaighri along but if you can see past the
 white veil then consider Al-Zeghel right in front of you."
 
-When Badr Bin Mughira looked towards Moosa's white-turbaned companion, he
+When Badr bin Mughira looked towards Moosa's white-turbaned companion, he
 extended his right hand towards him and unveiled his face using his left hand.
 Al-Zeghel appeared to be about fifty years of age. Appearing deeply interested,
-he looked at Badr Bin Mughira and said, "It is youth like yourself who are the
+he looked at Badr bin Mughira and said, "It is youth like yourself who are the
 last arrow in the quiver of Andalus."
 
-Badr Bin Mughira said, "I appreciate your encouragement but unfortunately in
+Badr bin Mughira said, "I appreciate your encouragement but unfortunately in
 Andalus the hands that should be mastering the arrows are playing rubabs."
 
 Al-Zeghel replied, "I will snatch away the rubabs from their hands and if not
@@ -157,7 +157,7 @@ then I shall chop those hands-off. Those useless hands of Andalus are playing
 rubabs because they do not have arrows. I am collecting arrows for them. I have
 come here to invite you to join the army of Granada."
 
-Badr Bin Mughira replied, "This invitation has been put forward earlier too but
+Badr bin Mughira replied, "This invitation has been put forward earlier too but
 my companions and I would rather prefer to live in this forest instead of being
 exhibits of the royal court of Granada. Here we do not have marbled palaces or
 satin tunics but we are certainly satisfied that unlike the people of Granada,
@@ -183,7 +183,7 @@ await his arrival. Before me, my father and before him, his father guarded this
 entrenchment, anxiously awaiting the arrival of that general. I too would
 continue to do my duty."
 
-Badr Bin Mughira became silent after saying this and Al-Zeghel stared at him
+Badr bin Mughira became silent after saying this and Al-Zeghel stared at him
 with subdued emotions of love, affection and devotion. Finally, he said, "This
 is what I had expected from Mughira's son. Youngman! Blessed are those pastures
 where your horses graze. Blessed are those trees under whose shades you sleep.
@@ -225,7 +225,7 @@ consider it to be a grave danger."
 
 "And what makes you say that there is no army behind us", said Moosa.
 
-Badr Bin Mughira replied, "I was informed of your arrival when you are about
+Badr bin Mughira replied, "I was informed of your arrival when you are about
 twenty furlongs away and I was also aware that there was no army behind you and
 when you were decending the mountain, I was on a tree listening to your
 conversation and despite that I was cautious. The fact is that your fifty men
@@ -236,7 +236,7 @@ smiling, Badr said, "We don't call it an arrow if the target can see it. Let me
 put your curiosity to rest." Saying this he removed an arrow from his quiver,
 loaded it in the bow, aimed at the plank by a tree across the river and cried
 out, "Our honored guests would like to know how many falcons are present here at
-this moment. Attention! The plank is your target." As soon as Badr Bin Mughira's
+this moment. Attention! The plank is your target." As soon as Badr bin Mughira's
 arrow flew out of his bow and pierced itself into the plank, arrows rained from
 all directions, filling-up the plank. Leaves, sliced by the arrows, fell-off the
 trees.
@@ -250,7 +250,7 @@ Al-Zeghel said, "Moosa! We have to learn a lot from this youth. I will send a
 few generals here. I want to put forward a lot of suggestions to him and I have
 decided to return today itself."
 
-Badr Bin Mughira said, "Please forgive me for making you stand here for so long.
+Badr bin Mughira said, "Please forgive me for making you stand here for so long.
 Please come, we will sit and talk."
 
 Al-Zeghel replied, "But your residence is quite far from here. And if we were to
@@ -334,6 +334,6 @@ But if Granada has decided to fight, then, the quantity can multiply three
 times. Even now there are horses available that graze in this forest. If I need
 arms, I will inform you."
 
-Before giving the bordering areas under Badr Bin Mughira's supervision,
+Before giving the bordering areas under Badr bin Mughira's supervision,
 Al-Zeghel finalized several details, after which Al-Zeghel ordered his troops to
 prepare to return.

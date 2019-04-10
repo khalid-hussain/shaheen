@@ -413,11 +413,11 @@ from the forehead of the moon. The stars were smiling. This is how the world was
 established and there were thousands of goods to fuel the desire of life. Rabia
 was bidding farewell to all those interesting things. However, the focus of all
 these interests was still there. The various accidents and incidents could not
-take Rabia's desire for Badr Bin Mughira away from her. The storms had passed.
+take Rabia's desire for Badr bin Mughira away from her. The storms had passed.
 Now she was contemplating calmly about her future. She did not fear the darkness
 of the prison cell. She was not scared of being hanged or burned. The face of
 death wasn't frightful for her. But standing at the gates of death with the
-desire for Badr Bin Mughira in her heart was indeed challenging for her. If only
+desire for Badr bin Mughira in her heart was indeed challenging for her. If only
 she could see him before dying. If only she could say that she would be waiting
 for him in the new life. If only she could live for him. If only these stars and
 moon could remind Badr of her. If only they could tell him that there wasn't an

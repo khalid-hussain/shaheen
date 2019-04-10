@@ -443,7 +443,7 @@ of these hypocrites will try to deceive Abu Abdullah until the very end.
 Therefore, it is important to secure Granada before Abu Abdullah's return."
 
 The next morning Abu Abdullah ordered his army to make preparations to leave.
-After defeating the Christians, Badr Bin Mughira and his warriors had reached
+After defeating the Christians, Badr bin Mughira and his warriors had reached
 the habitat of the falcons to keep the Christians away from the northern and
 eastern borders. Bashir Bin Hassan had to stay back in Malaga for treating
 Abul Hassan.

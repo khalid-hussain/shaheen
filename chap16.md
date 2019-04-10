@@ -71,10 +71,10 @@ the news as to who our guest was."
 
 After sitting at the food-spread, that scene came in front of Moosa's eyes
 when he first entered into the valley of the falcons with Al-Zeghel. He was
-imagining that feast in the forest whose host was Badr Bin Mughira. Today when
+imagining that feast in the forest whose host was Badr bin Mughira. Today when
 Mansoor Bin Ahmed assisted him in washing his hands, he suddenly felt like a
 stranger. Despite Bashir's rapport and Mansoor's sincerity, he felt a sort of
-loneliness in the gathering. He tried to bring Badr Bin Mughira's topic but he
+loneliness in the gathering. He tried to bring Badr bin Mughira's topic but he
 could not utter the words. The hosts were waiting for their guest to extend
 his hand towards the food.
 
@@ -128,12 +128,12 @@ find Badr? Can he also not disappear just like you?"
 Becoming a little optimistic, Moosa looked towards Mansoor, but then, became
 disappointed again and said, "Given the circumstances, looks like you too have
 become a poet like me. Hopelessness makes everyone a poet. All along the way I
-kept falsely consoling myself that Badr Bin Mughira is alive and maybe the
+kept falsely consoling myself that Badr bin Mughira is alive and maybe the
 person Abu Abdullah executed was someone else. It could also be that he might
 be in prison like me and even while sitting for dinner at your cloth-spread my
 eyes were glued at the door. I was waiting for a miracle from nature and when
 you asked me to extend my hand towards the food, my flickering flame of hope
-was put-off. The reality that Badr Bin Mughira's place lies vacant in this
+was put-off. The reality that Badr bin Mughira's place lies vacant in this
 gathering was unbearable for me. If I had raised his topic on my arrival,
 then, I would not have behaved like a child at the cloth-spread. But I was
 waiting, thinking that he was alive, not dead. Instead of saying anything from
@@ -145,12 +145,12 @@ brief, I feel that he was really close to me in this world. Rather he was part
 of my existence."
 
 Someone's footsteps could be heard away from the door. Brining a meaningful
-smile to his face, Mansoor said, "Would you like to meet Badr Bin Mughira
+smile to his face, Mansoor said, "Would you like to meet Badr bin Mughira
 instantly?"
 
 For a moment Moosa kept staring at Mansoor dumbfounded. Hearing the footsteps
 outside, he turned his attention towards the door and suddenly his entire life
-gathered in his eyes. Clad in iron from head to toe, Badr Bin Mughira was in
+gathered in his eyes. Clad in iron from head to toe, Badr bin Mughira was in
 front of him.
 
 For a moment, Moosa sat still in his chair without moving a muscle. Then
@@ -176,7 +176,7 @@ cloth-spread. Please come!"
 
 Badr looked at Moosa and said, "Carry on. I will change my clothes and come."
 
-After dinner, Badr Bin Mughira, Moosa, Bashir and Abu Mohsin returned to this
+After dinner, Badr bin Mughira, Moosa, Bashir and Abu Mohsin returned to this
 room and talked for long. Moosa had reached here after a long journey and Badr
 had come to the fort from a couple of remote checkposts after changing three
 horses, but, despite this unprecedented meeting, no one was tired or sleepy.
@@ -212,7 +212,7 @@ Badr said, "Ferdinand's troops have left Malaga. I got this news today afternoon
 Moosa was startled at this and said, "If this is true then I have to reach
 Granada immediately."
 
-Badr Bin Mughira said, "I think you still have some misunderstanding about the
+Badr bin Mughira said, "I think you still have some misunderstanding about the
 people of Granada."
 
 Moosa said, "When I thought that the people of Granada would support us for a
@@ -223,7 +223,7 @@ instead of death of indignity. This will be the first war against Ferdinand in
 which maybe the nation's old traitors and the peace-loving people would also
 support us."
 
-Badr Bin Mughira said, "And for this jihad you will have to pledge again at
+Badr bin Mughira said, "And for this jihad you will have to pledge again at
 the holy hand of Abu Abdullah."
 
 Moosa replied in a state of concern, "I have come to you for Granada not for
@@ -231,7 +231,7 @@ Abu Abdullah. Maybe I have some misunderstanding regarding the people of
 Granada but I have no misunderstanding about you. Even if I had not come here,
 even then you would have come to the aid of the people of Granada."
 
-Badr Bin Mughira remained silent for a moment then got up towards the window
+Badr bin Mughira remained silent for a moment then got up towards the window
 and started peeping outside. His back was towards Moosa.
 
 Moosa said, "Had I not known that given the circumstances we were able to
@@ -240,7 +240,7 @@ mujahideen as an ordinary soldier but I am sure that with your help we can win
 this war. Even now, more than one hundred thousand volunteers can be recruited
 in Granada."
 
-Suddenly, Badr Bin Mughira turned around, looked Moosa and said, "Moosa! You
+Suddenly, Badr bin Mughira turned around, looked Moosa and said, "Moosa! You
 know very well that I will not hesitate to offer the biggest sacrifice to save
 Granada but the past events have compelled me to think whether we can save
 Granada. Whether our past sacrifices for Granada could be of any use? And even
@@ -297,7 +297,7 @@ I don't want to extend their unnatural life. I said what I had to say. Despite
 all that I have said, if you command, then, I am at your service and my men
 are at your service."
 
-Badr Bin Mughira sat on his chair. Moosa thought for a while with his head
+Badr bin Mughira sat on his chair. Moosa thought for a while with his head
 bowed down. Finally, he said, "You have come to know that Ferdinand is going
 to attack Granada and God is my witness that the only question in front of me
 is how to save this enclave of the Muslims of Andalus. For us, this is not the
@@ -331,7 +331,7 @@ Moosa said, "If you don't mind, I would like to take Abu Mohsin along with me."
 
 "How can we have any objection. You may take anyone of us along."
 
-After the morning prayer, Badr Bin Mughira and his companions were bidding
+After the morning prayer, Badr bin Mughira and his companions were bidding
 farewell to Moosa and Abu Mohsin.
 
 Ferdinand had laid siege on Granada. His cowardly troops repeatedly attacked
@@ -447,10 +447,10 @@ of the city and simultaneously a new army appeared from the north – an army
 who, besides Moosa and Abu Mohsin, no one was aware of.
 
 The mujahids of the Frontier Falcon had arrived to the aid of the people of
-Granada. Badr Bin Mughira attacked from the rear of the enemy with three
+Granada. Badr bin Mughira attacked from the rear of the enemy with three
 thousand horsemen and within no time crushed the enemy lines. A confused
 Ferdinand ordered his troops to move to the right but in the meantime Moosa
-had already attacked from the rear. Now Ferdinand's troops faced Badr Bin
+had already attacked from the rear. Now Ferdinand's troops faced Badr bin
 Mughira's horsemen in the front while Moosa's fighters were in the rear. On
 the third side, Ferdinand's troops had pushed Abu Abdullah's cavalry back but
 here too the Christians had to face an unprecedented challenge. Suddenly, two
@@ -487,7 +487,7 @@ ours and if they maneuver right or left then we cannot stop them without
 incurring a huge loss. This is no time to argue. If we delay any further, I'm
 afraid the enemy will become aware of a very vital strategy of ours."
 
-Moosa said, "Very well. If Badr Bin Mughira agrees with your suggestion, then
+Moosa said, "Very well. If Badr bin Mughira agrees with your suggestion, then
 I have no objection in removing my troops from here."
 
 "Both of us think on the same wavelength. Leave this front and come to the
@@ -517,7 +517,7 @@ Apart from the fire of the tents, a huge stock of hay too had caught fire and
 its light was reaching the battlefield. The soldiers of the Christian army,
 without waiting for orders from their commanders, and the commanders without
 waiting for orders from their general turned their attention towards the tents
-and with this, immediately all of Badr Bin Mughira's cavalry stormed them.
+and with this, immediately all of Badr bin Mughira's cavalry stormed them.
 
 The retreating troops saw no refuge in their encampment that had nothing but
 burning tents all around. Taking advantage of the light, the troops in pursuit
@@ -528,18 +528,18 @@ Ferdinand gave the order to blow the trumpet for a retreat and the remainder
 of his troops left the tents and ran. Moosa ordered his infantry to guard the
 provisions while his cavalry was ordered to continue the pursuit of the enemy.
 
-Badr Bin Mughira and Mansoor Bin Ahmed had surrounded the enemy from the right
+Badr bin Mughira and Mansoor Bin Ahmed had surrounded the enemy from the right
 and left and the cavalry of Granada was behind them. The only way left open
 for Ferdinand's troops was towards the front.
 
-After chasing the enemy for about three miles, Badr Bin Mughira came close to
+After chasing the enemy for about three miles, Badr bin Mughira came close to
 Moosa and said loudly, "There is a stream at the little distance. Stop your
 troops. The enemy has come in the range of our final blow. Bring the mounted
 archers forward. The enemy will soon return."
 
-Moosa ordered his troops to halt. He had understood that Badr Bin Mughira had
+Moosa ordered his troops to halt. He had understood that Badr bin Mughira had
 not revealed his plans to the people of Granada due to some broad interest. He
-had also evaluated how dangerous and devastating Badr Bin Mughira's last
+had also evaluated how dangerous and devastating Badr bin Mughira's last
 arrows of the quiver would be for the enemy once they reached the stream.
 
 Ferdinand halted his horse thinking that the enemy was no longer in pursuit.
@@ -583,9 +583,9 @@ fresh horses was continuously raining arrows at them.
 As they approached the stream, most of the horses of Ferdinand's troops were
 free from the burden of their horsemen. The mujahideen were slaughtering them
 with their swords instead of their lances. Their hands were becoming numb but
-the joy of victory was making each one outshine the other. Badr Bin Mughira
+the joy of victory was making each one outshine the other. Badr bin Mughira
 saw a horseman from Granada on his left. His aventail and armor shone in the
-moonlight but the thing that caught Badr Bin Mughira's attention was his
+moonlight but the thing that caught Badr bin Mughira's attention was his
 beautiful horse. After slaughtering a few enemies, he advanced forward. A
 Castilian cavalryman who got injured from his lance turned his horse around
 and attacked him. The Granadian horseman blocked his blow with his sword but
@@ -593,15 +593,15 @@ in the meantime another Castilian soldier injured him with his lance from
 behind and moved forward. Despite being injured, this horseman did not halt
 his horse but killed two more men, one after the other.
 
-Words of appreciation flowed out of Badr Bin Mughira's mouth and he went up
+Words of appreciation flowed out of Badr bin Mughira's mouth and he went up
 close and said, "I'm glad at your bravery but there is no need to go into the
 midst of the enemy."
 
-After a while when Badr Bin Mughira's glance fell on the horseman from Granada
+After a while when Badr bin Mughira's glance fell on the horseman from Granada
 again, he was drained and bent towards his saddle.
 
-Badr Bin Mughira advanced his horse and said, "You're wounded." The horseman's
-sword fell from his hand and he rested his head on his hands. Badr Bin Mughira
+Badr bin Mughira advanced his horse and said, "You're wounded." The horseman's
+sword fell from his hand and he rested his head on his hands. Badr bin Mughira
 put his arm around his back and pulled him onto his horse.
 
 By midnight the remainder of Ferdinand's troops were crossing the river and
@@ -621,20 +621,20 @@ Badr replied, "At the moment, the only faces worth seeing are those whose
 foreheads are shining with the blood of martyrdom. After this victory I have
 no objection to reveal myself but at the moment, don't turn the people's
 attention towards me. Currently, Ferdinand's infantry is scattered in the
-region. We should not give them a chance to escape." Saying this Badr Bin
+region. We should not give them a chance to escape." Saying this Badr bin
 Mughira removed his aventail's veil.
 
 Moosa said, "God-willing very few of them will escape. I want our horses to
 freshen up."
 
 In the meantime, Abu Mohsin, Mansoor and the other officers of the army
-gathered around them. Badr Bin Mughira said, "Mansoor! Today you deserve my
+gathered around them. Badr bin Mughira said, "Mansoor! Today you deserve my
 sword and my horse. I didn't know that you were so well-aware of this area's
 ups and downs. I'm proud of you."
 
 For a valiant commander such words from a revered leader were a huge reward.
 
-Badr Bin Mughira looked here and there and said, "Bashir has still not arrived
+Badr bin Mughira looked here and there and said, "Bashir has still not arrived
 as yet. I hope with the grace of God he survived!"
 
 "Where is Bashir?" said Moosa alarmingly.
@@ -648,7 +648,7 @@ been injured very badly."
 A horseman came forward and said to Moosa, "No one knows the whereabouts of
 the Sultan. Some men have seen his vacant horse."
 
-A sort of anxiety appeared on Badr Bin Mughira's face and he said, "I thought
+A sort of anxiety appeared on Badr bin Mughira's face and he said, "I thought
 that the soldiers of Granada had freed themselves from the burden of the
 corpse by now. If by the Sultan you mean Abu Abdullah, then I'm afraid he
 could have reached Granada once again and might have ordered the gates of the
@@ -669,7 +669,7 @@ Badr enquired, "How is his condition now?"
 "There is a wound in his rib but, God-wiling, he will survive."
 
 The injured man sat resting against an olive tree. A few soldiers stood around
-him. Seeing Badr Bin Mughira and his companions the soldiers stepped aside.
+him. Seeing Badr bin Mughira and his companions the soldiers stepped aside.
 Badr got off his horse and went close to the injured man. At first glance Badr
 Bin Mughira couldn't recognize him but as he sat with a knee on the ground and
 looked at him, a shiver ran through his body after which he stood up. The
@@ -678,28 +678,28 @@ the life of someone who didn't deserve to live. I am your criminal. I am your
 murderer. I regret my sins and you have all the right to pronounce the worst
 of punishments for me."
 
-Badr Bin Mughira stood silently looking at him. It was Abu Abdullah in front
+Badr bin Mughira stood silently looking at him. It was Abu Abdullah in front
 of him. That very Abu Abdullah whose reputation of being a nation seller was
 engraved in the heart of every mujahid of Andalus...something that was
-difficult to forgive or forget even for a person like Badr Bin Mughira.
+difficult to forgive or forget even for a person like Badr bin Mughira.
 
 He was saying to himself, "Alas! I wish I hadn't seen your face at this
 auspicious occasion."
 
-Moosa, Bashir, Abu Mohsin and Mansoor stood silently behind Badr Bin Mughira
-looking at each other. From Badr Bin Mughira's face, it was not difficult to
+Moosa, Bashir, Abu Mohsin and Mansoor stood silently behind Badr bin Mughira
+looking at each other. From Badr bin Mughira's face, it was not difficult to
 analyze his thoughts.
 
 Abu Abdullah suddenly got up, limped a step forward and started looking at
-Badr Bin Mughira. A voice drenched in pain came out of his lips, "Why don't
+Badr bin Mughira. A voice drenched in pain came out of his lips, "Why don't
 you kill me. The burden of my sins has become unbearable for me now."
 
-Tears flowed out of Abu Abdullah's eyes. Badr Bin Mughira stood like a rock.
+Tears flowed out of Abu Abdullah's eyes. Badr bin Mughira stood like a rock.
 Abu Abdullah again said, "I had gotten rid of the burden of life. The horses
 of my enemy were about to crush my body but you oppressed me. For God's sake,
 kill me. My burden has become too much for this earth to bear." He was crying.
 
-There was no room in Badr Bin Mughira's heart for a traitor like Abu Abdullah
+There was no room in Badr bin Mughira's heart for a traitor like Abu Abdullah
 but even an ordinary mujahid isn't accustomed to assaulting a fallen enemy no
 matter how angry he might be. He said, "Abu Abdullah! Your tears don't impress
 me but your robe has stains of blood. In the battlefield, your blood has mixed
@@ -740,17 +740,17 @@ The enemy's corpses lay at every step. The prisoners taken were around five
 thousand while the number of those killed were four times more.
 
 The victorious army offered its Fajr prayers at the banks of the river Genil.
-On Moosa's insistence, Badr Bin Mughira performed the duty of leading the
+On Moosa's insistence, Badr bin Mughira performed the duty of leading the
 prayers. After prayers, this was his brief supplication, "O Giver of reward
 and punishment! Grant us the iman of our ancestors. Let our heads not be bowed
 in front of anyone but You! Grant us the guidance to submit to You and grant
 us the courage to die for the sake of the religion of our beloved Nabi (Peace
 be upon him). Aameen!"
 
-After the supplication, Badr Bin Mughira stood silently for a while. The
+After the supplication, Badr bin Mughira stood silently for a while. The
 mujahids of the valley of the falcon were looking at their leader with pride
 and the glances of the people of Granada were filled with love, respect and
-gratitude towards their benefactor. Badr Bin Mughira said:
+gratitude towards their benefactor. Badr bin Mughira said:
 
 "My dear elders and brothers! Congratulations on this glorious victory but
 don't think that you have gotten rid of the dangers to come after winning this
@@ -823,7 +823,7 @@ I have to return immediately. It's possible that the enemy might move towards
 our territory but I promise that you will find me among you whenever the need
 arises."
 
-After Badr Bin Mughira, Moosa got up and made the following speech:
+After Badr bin Mughira, Moosa got up and made the following speech:
 
 "Muslims! Four hundred years ago when the Christians took advantage of our
 internal anarchy and captured most of the areas of our Sultanate, then,
@@ -831,7 +831,7 @@ destiny sent Yousuf Bin Tashfeen to our aid who got rid of such an enemy for
 the Muslims that had a tight noose around us for a long time and today when
 the hypocrites amongst us had opened the doors of our homes for the enemy,
 when a group of hypocrites had made us wear the shackles of Ferdinand's
-slavery for a few pieces of humiliation, Badr Bin Mughira came as an angel of
+slavery for a few pieces of humiliation, Badr bin Mughira came as an angel of
 mercy for us.
 
 Yesterday's sun saw dark clouds of hopelessness on your faces and today's sun
@@ -877,11 +877,11 @@ you do not forgive me either."
 
 An elderly chief of Granada got up and said, "It is our collective wish that
 our brothers of the borders to passby Granada before moving on. The people
-must be desperate to see Badr Bin Mughira."
+must be desperate to see Badr bin Mughira."
 
-Moosa looked at Badr Bin Mughira but he shook his head. Moosa said to the
+Moosa looked at Badr bin Mughira but he shook his head. Moosa said to the
 elderly chief, "A while ago even I had wished to host our benefactor for
-atleast a day but after exchanging views with Badr Bin Mughira I came to the
+atleast a day but after exchanging views with Badr bin Mughira I came to the
 conclusion that even we should not go to Granada at the moment. We should
 continue our advance. The people of those regions that are currently occupied
 by the enemy are more desperately waiting for us compared to the people of

@@ -3,7 +3,7 @@
 
 # Realization of Rabia's Dream
 
-Badr Bin Mughira and Bashir Bin Hassan spent most part of Friday in Abu
+Badr bin Mughira and Bashir Bin Hassan spent most part of Friday in Abu
 Dawood's company. By talking to them Abu Dawood was satisfied that they would
 be spending the night in this fort but what surprised him was the fact that
 most of the soldiers in the fort had suddenly disappeared.
@@ -18,7 +18,7 @@ Bashir replied casually, "We never felt the need of soldiers to protect us."
 to guard this fort. Even if there is no danger of the Christians attacking
 suddenly you should be cautious."
 
-Badr Bin Mughira replied, "Don't worry. You will find enough troops to deal
+Badr bin Mughira replied, "Don't worry. You will find enough troops to deal
 with the danger should the need arise. My stay in this fort is merely
 temporary. Tomorrow you will leave for Granada and I, God-willing, will be in
 my forest and mountains."
@@ -30,10 +30,10 @@ my forest and mountains."
 After this, various other topics came under discussion.
 
 After Maghrib prayers, when these people were leaving the mosque, a horseman
-galloped into the fort and stopped at door of the mosque. Seeing Badr Bin
+galloped into the fort and stopped at door of the mosque. Seeing Badr bin
 Mughira he dismounted his horse and advanced swiftly towards him.
 
-Without waiting for him, Badr Bin Mughira asked, "Hope everything is okay? You
+Without waiting for him, Badr bin Mughira asked, "Hope everything is okay? You
 looked worried."
 
 The soldier replied, "The King's brother and a few officers of Granada's army
@@ -45,10 +45,10 @@ headed straight this way."
 "They are about 8 to 10 miles away from here. They said that they would be
 having dinner with you."
 
-Badr Bin Mughira turned his attention to Bashir Bin Hassan and said, "Make
+Badr bin Mughira turned his attention to Bashir Bin Hassan and said, "Make
 preparations for their boarding and lodging. I will go to receive them."
 
-After a while when Badr Bin Mughira was galloping his horse out of the fort
+After a while when Badr bin Mughira was galloping his horse out of the fort
 Abu Dawood quickly paced toward his room. He strolled about his room in deep
 thought. Then, opening the middle door and peeping into Maria's room he said,
 "Maria, please come here." When Maria go up from her chair and entered the
@@ -78,7 +78,7 @@ is such that by the mere imagination of departure from this place your face
 dries up. Tell me honestly are you not fond of the Frontier Falcon?"
 
 "Angela, now can I say that I hate him? But my world and his are totally
-different. Badr Bin Mughira is the full moon of Andalus' sky and I am merely
+different. Badr bin Mughira is the full moon of Andalus' sky and I am merely
 one of those thousands of spectators who despite being in awe with its
 brightness cannot even bring the idea in our hearts of bringing it down from
 the sky for the adornment of our huts. Bashir Bin Hassan is also a shining
@@ -98,7 +98,7 @@ Rabia! When I saw him for the first time my heart bore witness that he is
 mine. When I heard his voice I felt that my ears are familiar to his voice.
 Until my eyes keep seeing him and my ears keep hearing him, my heart will
 continue to say that he is mine. Rabia, tell me honestly! Don't you feel the
-same way for Badr Bin Mughira...that he is a man and you a lady...?"
+same way for Badr bin Mughira...that he is a man and you a lady...?"
 
 Rabia looked at her intently and said, "Don't you feel that you are a
 Christian and he a Muslim and there is a war waging in Andalus between
@@ -151,7 +151,7 @@ Maria and said, "If they get extinguished, then, light them up immediately. I
 have more torches in my room. When these finish, replace them with new ones."
 Saying this Abu Dawood left the room.
 
-At the time of the isha prayers, Badr Bin Mughira, the King of Granada's
+At the time of the isha prayers, Badr bin Mughira, the King of Granada's
 brother, Al-Zeghel and two renowned commanders of Granada's army, Moosa and
 Al-Zeghairi, entered the fort. Fifteen soldiers and junior officers of Granada
 also accompanied them.
@@ -160,7 +160,7 @@ Because the Moazzin was giving the Aathaan in the fort at the time they
 entered, these people entered the mosque as soon as they dismounted their
 horses. Bashir Bin Hassan and Abu Dawood welcomed them at the door of the
 mosque. After enthusiastically greeting Bashir Bin Hassan, Al-Zeghel looked
-towards Abu Dawood. Badr Bin Mughira said, "This is Abu Dawood. I had talked
+towards Abu Dawood. Badr bin Mughira said, "This is Abu Dawood. I had talked
 about him to you along the way."
 
 While shaking Abu Dawood's hand, Al-Zeghel said, "Badr has highlighted a
@@ -194,7 +194,7 @@ number of subjects was quite impressed by Abu Dawood's depth of knowledge. And
 when he made a mention of his underground activities whose objective was to
 overthrow the high-handed government of Castile, Al-Zeghel said, "Thank God
 you have selected a place for your activities where you are needed the most.
-You would be able to do a lot for us in Granada. With whatever Badr Bin
+You would be able to do a lot for us in Granada. With whatever Badr bin
 Mughira has told me about you, I can conclude that you certainly know how to
 motivate the youth. I will give a certain youth under your wing that you would
 have to bring on the right path. And that would be no less than bringing back
@@ -226,18 +226,18 @@ the correct answers, he replied with answers that would please them.
 
 By midnight, when they were planning to get up, sounds of military drums were
 heard all around the fort and everyone started looking at each other
-anxiously. With glances demanding answers, Al-Zeghel looked at Badr Bin
+anxiously. With glances demanding answers, Al-Zeghel looked at Badr bin
 Mughira and the glances of the rest of the people also focused on his face.
 
-Badr Bin Mughira's face was free from any anxiety and worry. "Don't worry", he
+Badr bin Mughira's face was free from any anxiety and worry. "Don't worry", he
 said. While getting up calmly, he said, "Let me find out right away." Bashir
-also got up but Badr Bin Mughira said, "Why don't you stay with the guests. I
+also got up but Badr bin Mughira said, "Why don't you stay with the guests. I
 will be right back."
 
-When Badr Bin Mughira reached the door, one of his guards came running in. He
+When Badr bin Mughira reached the door, one of his guards came running in. He
 said breathlessly, "The Christians have attacked."
 
-Hearing this, everyone drew their swords out but Badr Bin Mughira turned his
+Hearing this, everyone drew their swords out but Badr bin Mughira turned his
 attention towards them and said, "The Christians have not made such a blunder
 in the past 20 years. Please sit and take it easy. During the night, no matter
 how big an army they have, they won't be able to come near the fort. In my
@@ -251,7 +251,7 @@ more than half of my troops are here. I will be right back."
 
 Moosa said, "I will come with you."
 
-Badr Bin Mughira replied, "I am afraid that you might become a target of an
+Badr bin Mughira replied, "I am afraid that you might become a target of an
 arrow of one of my soldiers. I too might not go out to lead the fight. I
 merely want to give a few instructions to the guards of the fort."
 
@@ -264,7 +264,7 @@ Bashir Bin Hassan insisted on coming along, but Badr stopped him. He said,
 "The only reason my soldiers can stand in the raining arrows is because you
 can treat the injured. Stay here and prepare first aid for the injured."
 
-Badr Bin Mughira went out. He returned after an hour and said, "If you want,
+Badr bin Mughira went out. He returned after an hour and said, "If you want,
 you can relax and go to bed. The Christians are trying to flee after receiving
 an unprecedented welcome but it would be a miracle if even ten of them
 escaped. I would not stop anyone of you from being part of this fabulous
@@ -286,13 +286,13 @@ ran out of the room.
 Al-Zeghel laughed and said, "Seldom does a good scholar prove to be a good warrior."
 
 After covering a distance, Abu Dawood started to ponder and his speed slowed
-down. Badr Bin Mughira's statements showed that the destruction of his
+down. Badr bin Mughira's statements showed that the destruction of his
 attackers was imperative. Therefore, it would not have made any difference if
 there was light or not. Another thought that came to his mind was if his
 servant, whom he had sent as his emissary to the Governor of the Border was
 with the attackers. Although the possibility of this was less but nonetheless
 it was bothersome. He thought to himself, "What if the general of the
-attackers is arrested and confesses the whole thing to Badr Bin Mughira?" But
+attackers is arrested and confesses the whole thing to Badr bin Mughira?" But
 at this stage he would console himself by saying that since he was Ferdinand's
 special person, the Governor would have certainly complied with the orders of
 Ferdinand and wouldn't have revealed the secret to any of the army officers.
@@ -301,7 +301,7 @@ With every step, he would have all kinds of fears and would fight-off each one
 of them till he reached near his room when a new thought created shivers in
 his body. He thought, "Is it possible that the Governor of the Border himself
 would have lead the army for the sake of fame and fortune? And on being
-arrested would say in the presence of Badr Bin Mughira and Al-Zeghel that it
+arrested would say in the presence of Badr bin Mughira and Al-Zeghel that it
 is not him but Abu Dawood who is their main criminal who invited him to attack
 this fort."
 
@@ -326,7 +326,7 @@ Please hurry up. Angela is bleeding."
 
 Abu Dawood got up and went out running.
 
-After a while Abu Dawood entered the room with Badr Bin Mughira and Bashir Bin
+After a while Abu Dawood entered the room with Badr bin Mughira and Bashir Bin
 Hassan. Bashir took a cursory glance at Angela and Maria, then, carried each
 one of them to their beds, one after the other. In the meantime, a servant
 came carrying his bag of medicines. Bashir took out a bottle after opening the
@@ -343,7 +343,7 @@ Bashir Bin Hassan said, "Look! The more we delay removing the arrow, the more
 painful it will get. Don't be scared. Don't hold my hand or else I will have
 to give you some medicine to make you unconscious."
 
-Bashir Bin Hassan signaled to his servant and Badr Bin Mughira. Angela yelled
+Bashir Bin Hassan signaled to his servant and Badr bin Mughira. Angela yelled
 and said, "No. No. Don't hold my hands and feet. I won't do anything."
 
 Bashir said, "I initially thought that you were a brave girl. Just close your
@@ -365,7 +365,7 @@ Partly distraught, she was saying this while holding and shaking Bashir's arm.
 Bashir said, "Look! Please let me dress the wound. This way you are only
 aggravating her pain."
 
-Leaving Bashir Bin Hassan, she moved her attention towards Badr Bin Mughira,
+Leaving Bashir Bin Hassan, she moved her attention towards Badr bin Mughira,
 "For God's sake, save my daughter's life."
 
 Abu Dawood stepped forward, grabbed her by the arm and while forcing her onto
@@ -398,7 +398,7 @@ that this matter has not come to an end. I'm only waiting for the ground to
 clear. With the amount of engrossment Bashir Bin Hassan was treating Angela,
 Abu Dawood was looking at his wife with far more gravity.
 
-In the midst of all of this, Badr Bin Mughira looked at Rabia a few times. She
+In the midst of all of this, Badr bin Mughira looked at Rabia a few times. She
 still stood by Angela's bed in a state of shock. More than Angela being
 injured what impressed her was that despite a surprise attack by the enemy
 neither Badr's nor Bashir's face displayed any sign of worry or anxiety. She
@@ -422,12 +422,12 @@ attention to Bashir and said, "Let me go and comfort the guests."
 Bashir said, "I'm almost done too. Now all that needs to be done is to give
 her the medicine."
 
-While leaving the room Badr Bin Mughira stopped near Rabia's bed and
+While leaving the room Badr bin Mughira stopped near Rabia's bed and
 whispered, "Today victory is the realization of a chaste lady's dream. If you
 grant permission, I will reveal her name in front of the King's brother."
 
 First, Rabia nervously looked from one end of the room to the other where her
-parents stood. Then, with pleading glances looked at Badr Bin Mughira and said
+parents stood. Then, with pleading glances looked at Badr bin Mughira and said
 in a suffocated tone, "No, no. For God's sake no." Then she started looking at
 her Father who was oblivious to the world around him, staring at Maria like a
 snake gazing at its prey.
@@ -591,14 +591,14 @@ He was saying that 'Thank God that you will have to stay here a few more days.'
 
 "You liar!" Angela said and burst into a laughter.
 
-Al-Zeghel, Moosa and Al-Zeghairi were amazed at Badr Bin Mughira's
+Al-Zeghel, Moosa and Al-Zeghairi were amazed at Badr bin Mughira's
 preparedness after seeing the map of the battlefield in the light of the
 morning. Very few of the attackers were able to escape with their lives. Badr
 Bin Mughira's archers had encircled the attackers in the valleys and ditches.
 When the Christian attackers would muster courage and try to escape a volley
 of arrows from one valley and enter another, they would take a sigh of relief
 for a while only to find a greater number of arrows raining on them. At dawn,
-as Badr Bin Mughira and his guests mounted their horses and galloped out of
+as Badr bin Mughira and his guests mounted their horses and galloped out of
 the fort, the sound of the fort's drum was raised. Then, within moments
 several drums could be heard. Then, sounds of galloping horses could be heard
 from the forests in the vicinity and in no time some 3,000 horsemen gathered
@@ -612,7 +612,7 @@ part in last night's battle. Their work begins today. My archers have besieged
 the flocks of attackers at various locations and these lancers will gather
 them in one location."
 
-By afternoon Badr Bin Mughira's men had already huddled the enemy's remaining
+By afternoon Badr bin Mughira's men had already huddled the enemy's remaining
 fighters into a valley.
 
 Even Abu Dawood had demonstrated his fighting skills wearing an armor and
@@ -681,13 +681,13 @@ The young officer was left speechless and said, "Forgive me. I didn't know
 that he was a Muslim. No doubt this was the right punishment for such a
 person."
 
-Abu Dawood reached Badr Bin Mughira before the soldiers and narrated the tale
+Abu Dawood reached Badr bin Mughira before the soldiers and narrated the tale
 of his servant's execution in a manner that only but impressed him. However,
 when Bashir Bin Hassan got to know about the incident he appeared perplexed
 for a while. However, Abu Dawood opened the topic with him and cleared all his
 doubts.
 
-Badr Bin Mughira gathered all the prisoners in a narrow valley leaving a guard
+Badr bin Mughira gathered all the prisoners in a narrow valley leaving a guard
 of his archers around them. Leaving a group of horsemen who were busy in
 gathering the horses of the prisoners and the injured, he instructed the rest
 of the horsemen to prepare for a counter strike.
@@ -715,7 +715,7 @@ giving orders, I'm also good at taking orders."
 Moosa and Al-Zaghairi, along with their comrades, followed Al-Zeghel's example
 and changed into Badr's soldiers' uniform, ready to join the mission.
 
-After a while, Badr Bin Mughira rode out of the fort with 3,000 horsemen
+After a while, Badr bin Mughira rode out of the fort with 3,000 horsemen
 wearing his distinct white robe and turban.
 
 By evening, citizens of Ferdinand's border cities and villages were facing the
@@ -727,7 +727,7 @@ of the falcons after ravaging a huge region of the border. Some horsemen had
 flocks of livestock in front of them while some had loaded war booty on their
 horses and this now army appeared to be like a huge caravan of merchants.
 
-On reaching his residence, Badr Bin Mughira announced that one-fifth of the
+On reaching his residence, Badr bin Mughira announced that one-fifth of the
 war booty would be contributed to the treasury of Granada. Later, he organized
 a fresh group of 500 horsemen under the command of a youth to march towards
 the border fort. He ordered them to drive the prisoners across the border and
@@ -736,7 +736,7 @@ injured enemies incapable of walking should be given horses and escorted to
 the other side of the border. And those who are severely injured should be
 given treatment. I shall remain here for a few days."
 
-After this, when Badr Bin Mughira was discussing future strategies with
+After this, when Badr bin Mughira was discussing future strategies with
 Al-Zeghel, Moosa, Al-Zaghairi then Al-Zeghel said, "Ferdinand won't delay in
 declaring war. Had he captured the fort, war would have started. We shouldn't
 give him more time to prepare. After hearing the news of your victory, the
@@ -751,7 +751,7 @@ witnessing the enthusiasm of the people, my brother will immediately declare
 war. As it is he's all ready to engage with all he has. But he fears that the
 people won't support him."
 
-Badr Bin Mughira said, "After our previous meeting, I consider myself an
+Badr bin Mughira said, "After our previous meeting, I consider myself an
 ordinary soldier of the Granada's army. The sole purpose of a continuous war
 at this front was to engage Ferdinand's attention towards us till the people
 of Granada wake up from their deep sleep. But now I don't see that day is far
@@ -791,7 +791,7 @@ front."
 Al-Zaghairi enquired, "Are you convinced that after this fresh defeat he would
 not want to capture this area before Granada?"
 
-Badr Bin Mughira replied, "I am sure that past experiences have made him very
+Badr bin Mughira replied, "I am sure that past experiences have made him very
 far sighted. He's now convinced that, God forbid, if he were to capture the
 rest of Andalus even then he would have to be at loggerheads with these cliffs
 for years to come. However, if he were to take such a decision, it would be a
@@ -801,7 +801,7 @@ committing suicide then by that time they would at least wake up."
 
 Al-Zaghairi asked, "If you don't mind my asking, what is the strength of your troops."
 
-Badr Bin Mughira replied, "It is double the amount of what you have witnessed
+Badr bin Mughira replied, "It is double the amount of what you have witnessed
 so far."
 
 Moosa said, "Let's assume that circumstances change drastically and you're
@@ -835,5 +835,5 @@ Al-Zeghel said, "In your opinion who is the best among them?"
 brought him here."
 
 The next day Al-Zeghel and his comrades left after taking a commitment from
-Badr Bin Mughira that he would come to Granada within a week's time along with
+Badr bin Mughira that he would come to Granada within a week's time along with
 a thousand of his troops.

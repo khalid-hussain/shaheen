@@ -4,7 +4,7 @@
 In a valley of the Sierra Nevada Mountains, apart from the border army, all
 those leaders of the mountain tribes were present who had taken the Valley of
 the Falcons to be their last bastion, after the snatching away of Granada.
-Standing on a rock, Badr Bin Mughira was making a speech in front of them:
+Standing on a rock, Badr bin Mughira was making a speech in front of them:
 
 "My dear friends and elders! And my comrades! The enemy is charging at us from
 all sides. To defeat us, the enemy has utilized all its might. The situation we
@@ -135,14 +135,14 @@ his comrades were emigrating but there was no relent in his determination and
 liberty.
 
 In the third part of the night, Rabia suddenly woke up from her deep sleep. A
-torch was burning in her room and Badr Bin Mughira, clad in armor, was standing
+torch was burning in her room and Badr bin Mughira, clad in armor, was standing
 and staring at her, standing close by.
 
 While sitting-up, Rabia said, "When did you arrive?"
 
 "I had just arrived and am leaving right away."
 
-Rabia started looking at her husband with answer-seeking glances. Badr Bin
+Rabia started looking at her husband with answer-seeking glances. Badr bin
 Mughira said, "Rabia! God has granted us victory at the northern front. We have
 pushed the enemy thirty miles away but as soon as I reached here I got news from
 Mansoor that a legion of the enemy has attacked from the west. I am going there
@@ -157,17 +157,17 @@ can wake him up if you say so."
 "Zubaida is absolutely fine. For the sake of listening to stories, she just
 dozes off in Yusuf's room. Where is Bashir?"
 
-Badr Bin Mughira replied, "He's bringing the wounded ones along with him.
+Badr bin Mughira replied, "He's bringing the wounded ones along with him.
 Hopefully, he will reach here by tomorrow. This time, two hundred of our men
 were injured and fifty mujahideen were martyred in the battle while more than
 three thousand enemy soldiers were condemned to death."
 
 Rabia was looking at her husband silently. The noise of the soldiers gathered
 outside the fort could be heard. Suddenly, the door of the adjacent room opened
-and a seven-year old boy appeared wiping his eyes. He ran and embraced Badr Bin
+and a seven-year old boy appeared wiping his eyes. He ran and embraced Badr bin
 Mughira.
 
-Badr Bin Mughira picked him up and hugged him and said as he kissed his
+Badr bin Mughira picked him up and hugged him and said as he kissed his
 forehead, "Yusuf, my son, you were awake?"
 
 Yusuf replied, "Zubaida woke me up. You are leaving again? I will definitely
@@ -190,14 +190,14 @@ your mother."
 if one Muslim is alive."
 
 Zubaida, whose age was six years, was listening to their conversation, standing
-behind the door. Finally, she reluctantly entered into the room. Badr Bin
+behind the door. Finally, she reluctantly entered into the room. Badr bin
 Mughira put Yusuf down and hugged her. Zubaida said, "Why didn't my dear father
 come?"
 
 "Daughter! He will be here tomorrow."
 
-Yusuf was Badr Bin Mughira's son and Zubaida was Bashir Bin Hassan's daughter.
-After talking to the children for a while, Badr Bin Mughira left them in the
+Yusuf was Badr bin Mughira's son and Zubaida was Bashir Bin Hassan's daughter.
+After talking to the children for a while, Badr bin Mughira left them in the
 other room and they reluctantly laid down into their respective beds.  
 
 At the time of departure, Rabia and Badr stood in front of each other. The wife
@@ -221,7 +221,7 @@ the soldiers downstairs. It seems that you are leaving again somewhere."
 "Yes. I am leaving for the western front. I have asked Bashir to stay here for
 the sake of taking care of the wounded."
 
-Badr Bin Mughira looked at Rabia, bid her farewell and taking quick steps left
+Badr bin Mughira looked at Rabia, bid her farewell and taking quick steps left
 the room.
 
 After a while, Rabia and Angela were looking out of the window. The army of the
@@ -269,7 +269,7 @@ enthusiastic slogans of the mujahideen.
 After a while the people from nearby settlements were heading towards this fort
 to get the details of the victory. The crowd of these people stayed until the
 evening. The people of the settlement kept waiting for their revered leader for
-a long time but by nightfall when there was no news of Badr Bin Mughira's
+a long time but by nightfall when there was no news of Badr bin Mughira's
 arrival, they started heading towards their homes.
 
 After Isha prayers as Bashir Bin Hassan was heading towards the room of the
@@ -294,7 +294,7 @@ the bridge of the river."
 Abu Mohsin asked the soldiers who were gathering around him to put reins on
 fresh horses.
 
-Badr Bin Mughira was lying on a bed in the house of a chief of the settlement.
+Badr bin Mughira was lying on a bed in the house of a chief of the settlement.
 While lying on the bed he had fainted three times. Some of Mansour Bin Ahmed's
 men were standing close to his bed. Two of them were also the physicians who had
 come with Badr from the battlefield.
@@ -302,10 +302,10 @@ come with Badr from the battlefield.
 The ones who were stopped from entering the room were in the courtyard, weeping
 and praying for their revered leader.
 
-There were seven wounds on Badr Bin Mughira's body. Even in this injured state
+There were seven wounds on Badr bin Mughira's body. Even in this injured state
 he had pursued the fleeing enemy for several miles and had lost a lot of blood.
 
-The people were very anxiously waiting for Bashir Bin Hassan. Badr Bin Mughira
+The people were very anxiously waiting for Bashir Bin Hassan. Badr bin Mughira
 asked for water after gaining consciousness for the fourth time. Mansoor
 personally supported him with his hand and assisted him in drinking water. After
 drinking a few drops of water, Badr said in a feeble voice, "Recite the Quran to
@@ -313,7 +313,7 @@ me."
 
 Someone with a beautiful voice started the recitation of the Quran Kareem. Being
 touch by it, the mujahid closed his eyes. A physician stepped forward and tried
-to feel his pulse but Badr Bin Mughira said while smiling, "I am not unconscious
+to feel his pulse but Badr bin Mughira said while smiling, "I am not unconscious
 now. This sound wakes me up. It doesn't make me go to sleep."
 
 Galloping of horses could be heard from a distance and after a while Bashir Bin
@@ -362,7 +362,7 @@ eyes and prayers on their lips.
 After a while, the door of the other room opened and while peeping inside,
 Bashir gestured with his hand to Rabia and Angela and they went into the other
 room. Bashir closed the door again. Now, apart from Bashir, Rabia and Angela,
-there was no one else in Badr Bin Mughira' room. The three of them were standing
+there was no one else in Badr bin Mughira' room. The three of them were standing
 around the bed.
 
 Placing his hand on Badr's pulse, Bashir said, "I had made him unconscious to
@@ -389,7 +389,7 @@ Bashir said, "You will be fine, God-willing. Here, have it."
 lying down. After making him drink the medicine, he gestured with his hand to
 Angela and both of them left to the other room.
 
-On Badr Bin Mughira's cue, Rabia sat beside him. Taking her hand into his, Badr
+On Badr bin Mughira's cue, Rabia sat beside him. Taking her hand into his, Badr
 said, "Rabia! I had seen you smile in front of the stack of fire. But today you
 are sad. I did not do anything that was below the dignity of your husband. I did
 not take any wound on my back. You won't have to be ashamed because of me on the
@@ -452,7 +452,7 @@ Badr fainted several times until morning. Thousands of people from around the
 vicinity of the settlement were gathered around this house. Yusuf and Zubaida
 also arrived with the caravan of the soldiers.
 
-A little after sunrise, Badr Bin Mughira closed his eyes after having a last
+A little after sunrise, Badr bin Mughira closed his eyes after having a last
 look at his well-wishers and said in a feeble voice, "Mansoor, I handover my
 unfinished work to you. Keep the attention of the enemy diverted towards you
 until the Muslims in the rest of country do not reach Morocco. If you lay your
@@ -464,7 +464,7 @@ in your friendship, Mansoor will not feel that he has been left all alone after
 me. My time has arrived. I can see my destination. We belong to Allah and to Him
 is our return."
 
-After repeating the last words a few times, Badr Bin Mughira recited the
+After repeating the last words a few times, Badr bin Mughira recited the
 Kalima-e-Tayyiba several times. His voice started becoming weaker till a point
 where his lips were moving but his voice could not be heard. The well-wishers
 thought that he was sleeping. The physicians thought that he had fainted.
@@ -562,7 +562,7 @@ would not have a life of humiliation and disgrace."
 
 The captain said, "If nature intended our betterment then a glorious mujahid
 like Moosa would not have had to face defeat in Granada and after him the
-remainder of the mujahideen wouldn't have been deprived of Badr Bin Mughira's
+remainder of the mujahideen wouldn't have been deprived of Badr bin Mughira's
 leadership."
 
 Bashir annoyingly said, "Who says that Moosa has been unsuccessful in his

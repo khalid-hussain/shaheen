@@ -59,7 +59,7 @@ stack. Like the rest of the monks, his entire body was hidden in a white robe.
 Hearing the sound of his voice, Angela and Rabia's attention focused on him.
 While singing, he dragged himself closer to Angela and Rabia and slid away the
 heavy cloth from his head. For a second, Rabia and Angela could not believe
-their eyes. They were looking at him spellbound. This was Badr Bin Mughira.
+their eyes. They were looking at him spellbound. This was Badr bin Mughira.
 Suddenly another monk came and stood close to him. From his voice it sounded as
 if this was his first attempt at singing. He tried to sync his tone with that of
 his companion but despite trying, his voice would either become too low or two
@@ -153,7 +153,7 @@ have lost his way?"
 Over here, now Don Louis himself was scolding the people and pushing them back.
 
 The moon of the fourth of the lunar month was culminating the short distance of
-its destination and gradually the darkness of the night was increasing. Badr Bin
+its destination and gradually the darkness of the night was increasing. Badr bin
 Mughira and Bashir Bin Hassan were circling around the stack in the garb of
 monks. The Inspector of the city, too, was circling the stack vigilantly. Badr
 said to Bashir, "Keep his attention focused on you. He seems to be a clever
@@ -183,7 +183,7 @@ decision back. The King will nullify the verdict with his decree."
 
 "The King understands the interests of the church better than us."
 
-When Bashir Bin Hassan was talking to the Inspector, Badr Bin Mughira went close
+When Bashir Bin Hassan was talking to the Inspector, Badr bin Mughira went close
 to Rabia from behind her and while cutting the ropes of her hands and feet,
 whispered to her and said, "Rabia! Will you be able to ride a horse?"
 
@@ -229,7 +229,7 @@ The horseman replied, "He must be having some fifty men with him."
 
 The Bishop said, "I don't understand the reason for bringing along so many men."
 
-Badr Bin Mughira stepped forward and said, "Let me explain you the reason for
+Badr bin Mughira stepped forward and said, "Let me explain you the reason for
 this. Please come with me!"
 
 The Bishop became worried and said, "Who are you?"
@@ -263,7 +263,7 @@ The Bishop tried to shout but finding a dagger close to his jugular vein, his
 voice did not come out of his mouth. He began walking in front of him.
 
 The sound of the galloping horses had now came closer. Don Louis intended to go
-there when Badr Bin Mughira stepped forward and got hold of his arm and placing
+there when Badr bin Mughira stepped forward and got hold of his arm and placing
 the tip of a dagger on his ribs said, "Come with me. If you try to talk then..."
 Instead of completing his sentence, he pressed the dagger and Don Louis became
 helpless and started walking along with him.
@@ -282,7 +282,7 @@ shouting, began colliding with each other. The policemen of Loja were now
 running here and there with the people instead of guarding the stack.
 
 Four of the horsemen who were on guard around the stack jumped off their horses.
-Taking the garb of the monk off and after throwing it into the stack, Badr Bin
+Taking the garb of the monk off and after throwing it into the stack, Badr bin
 Mughira took a leap and got on a horse. Bashir, Rabia and Angela got on the
 other three horses.
 
@@ -293,7 +293,7 @@ Bashir turned the reins of the horse around. Badr moved his attention to a fifth
 horseman and said, "You also go along with them."
 
 Taking Rabia and Angela along, Bashir and this soldier too off from another
-side. Badr Bin Mughira prompted his horse forward and grabbed a burning torch
+side. Badr bin Mughira prompted his horse forward and grabbed a burning torch
 from a soldier's hand and threw it into the stack. The hay that was placed in
 the stack to burn the wooden sticks caught fire immediately. The Governor and
 the Bishop were screaming terribly but no one was there to hear their voices in
@@ -371,7 +371,7 @@ Bashir said, "He must be upstairs arguing with the senior monk."
 The soldiers burst into a laughter. Basher said, "Okay, call him and also get
 our food."
 
-Badr Bin Mughira's horsemen entered this monastery close to midnight. In this
+Badr bin Mughira's horsemen entered this monastery close to midnight. In this
 brief period, apart from securing the best horses for themselves from the army
 headquarters, they had also burned the tents and houses of the army
 headquarters. They contented themselves in capturing the government's treasure
@@ -400,12 +400,12 @@ would travel during the night and during the day stay at those monasteries that
 were away from the cities and settlements in which his soldiers, in the garb of
 monks, had consolidated their positions a few days earlier. The residents of
 this monastery, like the monks of Loja were in custody. In whichever monastery
-Badr Bin Mughira would enter, his men would be ready with food for his men and
+Badr bin Mughira would enter, his men would be ready with food for his men and
 fodder for the horses. With every destination, the quantity of his men kept
 increasing. When he was crossing the border of Ferdinand's kingdom, then the
 number of his men had become one hundred and fifty.
 
-Badr Bin Mughira was strolling anxiously in a room of the mountain fort. His
+Badr bin Mughira was strolling anxiously in a room of the mountain fort. His
 face had the effects of hopelessness, concern and anguish. Rabia entered into
 the room. Badr was in some deep thought. After a while when he did not notice
 her, then, Rabia took a step forward and said, "You had called for me?"
@@ -475,7 +475,7 @@ the path of my life with the road on which you are traveling on. You had
 promised that after the siege of Granada is over...but..." Rabia could not say
 anything more. She hid her face between both her hands and began sobbing.
 
-Badr Bin Mughira was touched and said, "Rabia! Please don't misunderstand me!
+Badr bin Mughira was touched and said, "Rabia! Please don't misunderstand me!
 Becoming your life partner is a matter of pride for me. For me you're that lush
 green tree under which a weary traveler takes refuge. The other day when I
 proposed to you for marriage I thought that spending a few moments with you
@@ -500,7 +500,7 @@ dignity."
 
 Rabia said, "So, can't I support you in a death of dignity."
 
-Badr Bin Mughira said, "Rabia! I don't have any misunderstanding about you. I
+Badr bin Mughira said, "Rabia! I don't have any misunderstanding about you. I
 have seen you smile in front of the stack but I don't have the right to take you
 onto dangerous pathways of my life for the joy of a few days. There are nothing
 but calamities for you in my companionship. Rabia! I knock on the door of death
@@ -520,7 +520,7 @@ can't show off any skill of archery or swordsmanship in the field but I can
 provide first aid to the wounded. Please don't send me to Morocco. Please don't
 compel me to say farewell to life even before my death."
 
-For a while Badr Bin Mughira kept staring at this model of selflessness and
+For a while Badr bin Mughira kept staring at this model of selflessness and
 loyalty. Suddenly a little smile appeared on his squeezed lips but he turned his
 face around and started to stroll slowly in the room with his head bowed down.
 After taking two or three rounds, he stopped close to Rabia. Rabia was
@@ -534,10 +534,10 @@ few years, months or days, then, I am willing to marry you today itself. Give me
 a, Rabia! Are you ready for this?"
 
 Redness of modesty spread over Rabia's face. She lowered her neck. She was
-tongue-tied but her heartbeats were giving a reply to Badr Bin Mughira's
+tongue-tied but her heartbeats were giving a reply to Badr bin Mughira's
 question.
 
-After a while, Badr Bin Mughira said, "Rabia! I have proposed to marry you.
+After a while, Badr bin Mughira said, "Rabia! I have proposed to marry you.
 Please answer."
 
 Rabia raised her neck and looked at him. Words came and stopped at her shivering
@@ -556,14 +556,14 @@ helpless woman's gratitude."
 She became serious and said, "You are joking."
 
 He said, "I don't joke. If no incident occurs today then the last glance of the
-setting sun will fall upon Badr Bin Mughira and Rabia Bint Abu Dawood in the
+setting sun will fall upon Badr bin Mughira and Rabia Bint Abu Dawood in the
 capacity of husband and wife."
 
 "But today itself? So soon?"
 
 Badr said, "Yes, if you don't have any objection."
 
-Rabia looked at Badr Bin Mughira and taking quick steps, went out of the room
+Rabia looked at Badr bin Mughira and taking quick steps, went out of the room
 without saying anything.
 
 Rabia's feet were stumbling. With the pace of her heartbeats, the speed of her
@@ -619,10 +619,10 @@ Angela stepped forward involuntarily, embraced Rabia and while sobbing said,
 everything. Sit down."
 
 Angela sat on a chair and Rabia sat on a chair close to her and began telling
-her the tale of her meeting with Badr Bin Mughira.
+her the tale of her meeting with Badr bin Mughira.
 
 In a spacious room on the other side of the fort, Bashir Bin Hassan and other
-physicians and surgeons were busy in taking care of patients. Badr Bin Mughira
+physicians and surgeons were busy in taking care of patients. Badr bin Mughira
 entered into this room. Bashir Bin Hassan was tying a bandage around a wounded
 person. Getting a cue from one of his companions, Bashir turned around and
 looked, then, stood up after giving his bandage a last knot.
@@ -656,7 +656,7 @@ they had docked last month."
 
 "I think this matter has been decided."
 
-Badr Bin Mughira said after thinking for a while, "Bashir! After having a
+Badr bin Mughira said after thinking for a while, "Bashir! After having a
 discussion on this issue with Rabia, I have changed my opinion of sending her to
 Morocco."
 
@@ -731,7 +731,7 @@ when I said that now it would be better to send them to Morocco then your face
 was telling me that you're not concerned even a bit by my decision."
 
 Basher replied, "At that time, I was not concerned about my issue. I had a
-realization for those compulsions that compelled a mujahid like Badr Bin Mughira
+realization for those compulsions that compelled a mujahid like Badr bin Mughira
 to say farewell to his dearest wishes. I was witnessing that that mujahid whose
 sword is providing refuge to its nation is bidding farewell to that girl that
 was going to become his life partner. You were standing in front of me like a
@@ -751,5 +751,5 @@ sword. I was afraid that you might ridicule me for changing my decision so soon
 regarding Rabia but I am indebted to you. Now go to Angela and console her."
 
 In the evening, the sound of drums was resonating in the valley of the falcons
-from one end of the border to the other. The couples, Badr Bin Mughira and
+from one end of the border to the other. The couples, Badr bin Mughira and
 Rabia, Bashir Bin Hassan and Angela were married.

@@ -1,29 +1,29 @@
 
 # The Spider's Web
 
-Badr Bin Mughira had encamped at a distance of twenty miles from Granada. One
+Badr bin Mughira had encamped at a distance of twenty miles from Granada. One
 evening an officer of his army informed him that a Berber had come with some
-important message. Badr Bin Mughira called him inside his tent immediately.
-Mansour Bin Ahmed was sitting with Badr Bin Mughira.
+important message. Badr bin Mughira called him inside his tent immediately.
+Mansour Bin Ahmed was sitting with Badr bin Mughira.
 
 The Berber entered the tent, shook hands with both of them, one after the
 other, and while settling down on a chair in front of them said, "I have come
 from Granada."
 
-"Go on", Badr Bin Mughira said.
+"Go on", Badr bin Mughira said.
 
 After a little hesitation the Berber chief said, "I would like to say
 something to you in private."
 
-Badr Bin Mughira looked towards Bashir Bin Hassan, who he got up and left the tent.
+Badr bin Mughira looked towards Bashir Bin Hassan, who he got up and left the tent.
 
 The newcomer pulled out a letter from his pocket, stood up and while
-forwarding it to Badr Bin Mughira said, "I have been sent by Abu Dawood. He
+forwarding it to Badr bin Mughira said, "I have been sent by Abu Dawood. He
 has said that a reply from your side can save Hispania from destruction."
 
-Badr Bin Mughira opened the letter and started reading it, while the Berber
+Badr bin Mughira opened the letter and started reading it, while the Berber
 chief was studying, with extreme interest, the effects of its writings on
-Badr's face. After reading the letter Badr Bin Mughira looked at the Berber
+Badr's face. After reading the letter Badr bin Mughira looked at the Berber
 chief for a second and returned back to reading it with even more
 concentration. This was the content of the letter:
 
@@ -208,7 +208,7 @@ your capture."
 <!-- END OF LETTER QUOTE -->
 
 After reading the letter again and being oblivious of the emissary's presence,
-Badr Bin Mughira got up and started strolling in the tent. Words of the letter
+Badr bin Mughira got up and started strolling in the tent. Words of the letter
 were circulating in his mind with different interpretations. He was picturing
 the four walls of Al-Hamra. After entering it on a dark night from a window,
 he stood facing Rabia, who welcomed him with a smile drenched in tears of
@@ -276,7 +276,7 @@ dark. The water in the river was flowing very fast."
 Abu Dawood said, "You have come from the cold. Come in to the next room and
 change your clothes."
 
-Removing his mask Badr Bin Mughira said, "I am used to roaming in this weather."
+Removing his mask Badr bin Mughira said, "I am used to roaming in this weather."
 
 Abu Dawood said, "I was sure that you would come."
 
@@ -284,8 +284,8 @@ Abu Dawood said, "I was sure that you would come."
 
 "Please come. It is not appropriate to stand here."
 
-Badr Bin Mughira entered into a spacious room that was furnished with
-extremely precious carpets and chairs. While asking Badr Bin Mughira to sit on
+Badr bin Mughira entered into a spacious room that was furnished with
+extremely precious carpets and chairs. While asking Badr bin Mughira to sit on
 one of the chairs, Abu Dawood said, "Abu Abdullah is in one of the rooms
 upstairs, playing chess with a servant of mine. You reached after a very long
 time, but fortunately the love of chess has kept him from leaving to his
@@ -298,7 +298,7 @@ upstairs. And you know what you have to do next. In the next room, those four
 black slaves are ready to be called when needed. I will leave now. Sit
 comfortably. There is no danger here."
 
-Abu Dawood left room and Badr Bin Mughira took to observing the room.
+Abu Dawood left room and Badr bin Mughira took to observing the room.
 Suddenly, he heard footsteps from a direction. He turned around and looked,
 and abruptly stood up. Rabia was standing in front of him, staring at him
 dumbfounded.
@@ -307,7 +307,7 @@ dumbfounded.
 
 And she replied in a shocked voice, "You...why did you come here...?"
 
-Badr Bin Mughira could not comprehend her concern. Smiling, he said, "You did
+Badr bin Mughira could not comprehend her concern. Smiling, he said, "You did
 not like my coming here?"
 
 She intuitively stepped forward and said, "Every night I would wish for such a
@@ -315,14 +315,14 @@ dream but if only this was a dream but this is an interpretation of a dream
 gone wrong – a disastrous interpretation – Please leave this place for God's
 sake."
 
-Despite being upset Badr Bin Mughira forced a smile on his face and said,
+Despite being upset Badr bin Mughira forced a smile on his face and said,
 "There is no danger here. I think you are unaware that I came here on your
 father's invitation."
 
 "I know. Angela has told me everything. You have become victim to a dangerous
 conspiracy. There is still time. For God's sake, hurry up!"
 
-Badr Bin Mughira said, "Isn't Abu Abdullah in the upper chamber at this time?"
+Badr bin Mughira said, "Isn't Abu Abdullah in the upper chamber at this time?"
 
 "All this is a lie. I have heard everything standing by the door of the
 adjacent room. Even if the door was not locked, I would have put my life at
@@ -339,7 +339,7 @@ the Christians have attacked you?"
 "That was not my dream. Actually, I had learned about my father's plot and now
 Angela has informed me about this conspiracy."
 
-Bringing a remorseful smile to his face Badr Bin Mughira said, "If this is a
+Bringing a remorseful smile to his face Badr bin Mughira said, "If this is a
 conspiracy then it would be so thorough that escaping now would be in vain.
 Not only would have the rope ladder vanished but his men would now be around
 the four walls below. But Rabia, if destiny would want me to deliver a task,
@@ -364,7 +364,7 @@ for you."
 coming. What will he say if he finds you here?"
 
 "He will say that I am in love with you and I will say who is it in Andalus,
-apart from Badr Bin Mughira, whose sword has been raised in face of the
+apart from Badr bin Mughira, whose sword has been raised in face of the
 excesses committed against the helpless and oppressed girls of Hispania. Who
 is the one whose glances have the chastity of angels?"
 
@@ -385,9 +385,9 @@ senses."
 Rabia wanted to say something but Abu Dawood got hold of her hand and pulled
 her away to the other room.
 
-For a while Abu Abdullah, in his perplexity, kept staring at Badr Bin Mughira.
+For a while Abu Abdullah, in his perplexity, kept staring at Badr bin Mughira.
 Finally, he signaled to the soldiers who, pointing their lances, advanced
-forward towards him in a formation of a semi circle. Badr Bin Mughira quickly
+forward towards him in a formation of a semi circle. Badr bin Mughira quickly
 removed his sword out and throwing it towards Abu Abdullah said, "You didn't
 have to bring so many men to arrest just one man."
 
@@ -395,7 +395,7 @@ On Abu Abdullah's cue a soldier picked up the sword and feeling at ease, he
 moved forward and said, "I didn't know that you would display such idiotic
 bravery to enter the Al-Hamra."
 
-Badr Bin Mughira replid, "In the Al-Hamra Palace if wisdom is considered
+Badr bin Mughira replid, "In the Al-Hamra Palace if wisdom is considered
 treachery, betrayal and cowardice, then I should not be sorry at my
 stupidity."
 
@@ -404,11 +404,11 @@ appropriate to discuss such matters. A lot of people who are as high in
 stature as you are waiting for you in a chamber of the palace. For your own
 safety I am sure you will comply with the orders of my soldiers."
 
-Abu Abdullah left the room and the soldiers closed-in on Badr Bin Mughira. A
-soldier moved forward with handcuffs and Badr Bin Mughira extended his arms
+Abu Abdullah left the room and the soldiers closed-in on Badr bin Mughira. A
+soldier moved forward with handcuffs and Badr bin Mughira extended his arms
 without any resistance.
 
-Badr Bin Mughira entered the Dar Al-Aswad under the strict supervision of the
+Badr bin Mughira entered the Dar Al-Aswad under the strict supervision of the
 soldiers after passing through a number of corridors in the light of the
 chandeliers. Observing a guard of shining swords at every step he thought that
 the idea of not escaping was a correct one.

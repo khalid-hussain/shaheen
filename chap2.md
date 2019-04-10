@@ -142,7 +142,7 @@ matrimonial union of Ferdinand V and Isabella, two Christian kingdoms of
 Aragon and Castile were united and the intense discord among the Muslims
 proved to be the last blow to the glimmering flame of the Muslims.
 
-Badr Bin Mughira was called the "Frontier Falcon" by the emirs and people of
+Badr bin Mughira was called the "Frontier Falcon" by the emirs and people of
 Castile. Because of his unprecedented victories against the attacking
 Christian troops, he became famously known by this title in Granada too. This
 sixty miles long and forty miles wide mountain and forest was a home to these
@@ -362,7 +362,7 @@ turned their horses in this direction. But after half a mile down, there was a
 deep ditch. Hopeless from all sides, about 200 men jumped off their horses and
 fell into this ditch while some threw away their swords.
 
-Badr Bin Mughira ordered some of his soldiers to chase the men in the ditch
+Badr bin Mughira ordered some of his soldiers to chase the men in the ditch
 while he appointed another group to guard the prisoners.
 
 This battle ensued with the early rays of the sun and by noon Badr's 2,000
@@ -392,13 +392,13 @@ garland of flowers fell off his shivering hands.
 
 The people were listening to the roars of "Allahu Akbar". They also saw that
 the leader of the attackers had a crescent on his fluttering flag but before
-they could believe their eyes and ears and turn into action, Badr Bin
+they could believe their eyes and ears and turn into action, Badr bin
 Mughira's 2,000 diehard warriors had entered the city through the wide open
 gate. After a while, a few of Count Santiago's soldiers, who had escaped
 through the forest and headed towards the city, learned from fleeing city
 dwellers that the city had been captured by the Muslims.
 
-Before midnight, Badr Bin Mughira had taken away all the gold, silver, ration
+Before midnight, Badr bin Mughira had taken away all the gold, silver, ration
 and several livestock as booty and left the city.
 
 After handing over the booty to 500 of his horsemen, he headed towards the
@@ -441,7 +441,7 @@ Akbar" resonated in the silence of the forest.
 
 After spending a restless night, Count Santiago came out of his tent and lay
 in the lush green grass in a deep sleep, under the cool shade of a tree.
-Rubbing his eyes, he awoke by the shouts of the people. Badr Bin Mughira, who
+Rubbing his eyes, he awoke by the shouts of the people. Badr bin Mughira, who
 was wearing a white robe over his armor and with only his eyes visible from
 his veil, came and stood right in front of him. Blood was splattered all over
 his white robe. Count Santiago took a few looks at his masked opponent from
@@ -510,7 +510,7 @@ concentrating on finishing that last Islamic sultanate, whose people were not
 only against living under him like subjects but were also striving to achieve
 their lost glory.
 
-Meanwhile, Badr Bin Mughira took advantage of the situation and constantly
+Meanwhile, Badr bin Mughira took advantage of the situation and constantly
 kept consolidating his strength. Gradually, when the people of clandestine
 groups of various cities found out that the Frontier Falcon is none other than
 Mughira's young son, some of them, who were keen on taking part in jihad, left
@@ -525,14 +525,14 @@ The rulers of Cordova and Seville had remained under his treatment. When the
 Crown Prince of Castile injured himself severely after falling off his horse,
 Ferdinand sent for him. On the Crown Prince's recover, Ferdinand and Isabella
 offered him the post of Royal Physician but he refused and returned to
-Cordova. After two years, when he received a letter from Badr Bin Mughira, he
+Cordova. After two years, when he received a letter from Badr bin Mughira, he
 left his luxurious palace and gave priority to living with a mujahid in the
 forest.
 
 Two months after the meeting with Al-Zefel, the ruler of Cordova, Abul Hassan,
 issued a secret decree and gave the custody of some of Cordova's bordering
 areas that were connected to the Frontier Falcon's mountains and forest, to
-Badr Bin Mughira. Badr Bin Mughira did not get himself involved in the affairs
+Badr bin Mughira. Badr bin Mughira did not get himself involved in the affairs
 of tax collection, judiciary and other local issues. He left these
 responsibilities with the border administrator while he took over the
 administration of check posts and construction of new defensive outposts.
@@ -548,7 +548,7 @@ Falcon had promised to give a few days' training to them in his forest.
 "training will prove beneficial for you."
 
 The troops were more excited to have a look at the Shaheen of the forest than
-to learn new war tactics. Badr Bin Mughira's lieutenant, Mansour Bin Ahmed,
+to learn new war tactics. Badr bin Mughira's lieutenant, Mansour Bin Ahmed,
 would receive the troops disguised as the Frontier Falcon and would send them
 back after training them for a few days on the war tactics of fighting in the
 forest and mountains.

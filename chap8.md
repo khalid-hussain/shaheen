@@ -78,7 +78,7 @@ the bazaars of Granada. What is that thought that is disturbing the Crown
 Prince of Granada at this time?"
 
 Abu Abdullah said, "Is it also my teacher's order that I should raise slogans
-at the victory of Moosa, Al-Zaghairi and Badr Bin Mughira? Aren't my
+at the victory of Moosa, Al-Zaghairi and Badr bin Mughira? Aren't my
 stepbrothers enough who were walking in front of their horses in the
 procession like servants today? All this is happening because they know that I
 cannot do this kind of flattery and they want to prove to my father, once
@@ -156,7 +156,7 @@ over the fact that I did not take him along with me to the campaign."
 
 Al-Zeghel replied, "Thank God we found such a person."
 
-After the third day of these events, Badr Bin Mughira received the news that
+After the third day of these events, Badr bin Mughira received the news that
 the Christians had restarted incursions along the border. So, he immediately
 ordered his troops to make preparations for departure.
 
@@ -168,14 +168,14 @@ you except in case of dire need. If you keep up the skirmishes at the border,
 then the advantage would be that it will give us more time to prepare and
 Ferdinand would also have his attention divided on two fronts."
 
-After meeting Abul Hassan as Badr Bin Mughira was leaving the Al-Hamra Palace,
+After meeting Abul Hassan as Badr bin Mughira was leaving the Al-Hamra Palace,
 a slave girl handed him a slip of paper.
 
-When Badr Bin Mughira opened the piece of paper, these words were written on
+When Badr bin Mughira opened the piece of paper, these words were written on
 it: "Congratulations on your victory...Rabia"
 
-For a few moments Badr Bin Mughira felt delightful heartbeats and a familiar
-face emerged in front his eyes. Badr Bin Mughira said to the slave girl,
+For a few moments Badr bin Mughira felt delightful heartbeats and a familiar
+face emerged in front his eyes. Badr bin Mughira said to the slave girl,
 "Please thank her on my behalf and ask her to supplicate for me."
 
 In the evening she learned from her father that the Frontier Falcon had
@@ -261,10 +261,10 @@ the armies of Cordova and Seville. He divided his army into three groups. He
 gave the command of one section under the leadership of Al-Zeghel, ordering
 him to block the forces advancing from Seville. For the second army, he could
 not find a more befitting man than Moosa but on the advice of a few nobles he
-left Moosa with Abu Abdullah in Granada and called for Badr Bin Mughira to
+left Moosa with Abu Abdullah in Granada and called for Badr bin Mughira to
 lead it.
 
-Badr Bin Mughira reached Granada with more than half of his troops and took
+Badr bin Mughira reached Granada with more than half of his troops and took
 charge of the force that was advancing towards the border of Cordova.
 
 Abul Hassan kept the charge of the remainder of the army in his hand. Before
@@ -292,7 +292,7 @@ Al-Zaghairi and Naeem Ridwan, to take Moosa's place.
 
 Two weeks passed and Abul Hassan got to know that Ferdinand's army have halted
 at a place across the border. Similar news was received from Al-Zeghel and
-Badr Bin Mughira that troops moving from Seville and Cordova have halted near
+Badr bin Mughira that troops moving from Seville and Cordova have halted near
 the border.
 
 But, in the third week he suddenly received the news that the ruler of Cadiz
@@ -309,18 +309,18 @@ have gone into the hands of the enemy.
 
 Abul Hassan realized that now Ferdinand would divert his attention towards
 Alhama and attack some other city. Therefore, he sent orders to Al-Zeghel and
-Badr Bin Mughira to remain at their fronts and gave half of his troops to
+Badr bin Mughira to remain at their fronts and gave half of his troops to
 Al-Zaghairi to march towards Alhama.
 
 Al-Zaghairi besieged Alhama and closed all the external supply routes for
 reinforcements and supplies. When Ferdinand received the news of the siege, he
 ordered his troops to march from all three directions.
 
-The armies of Cordova were the first to clash with Badr Bin Mughira. Instead
-of giving them a chance to cross the border, Badr Bin Mughira crossed the
+The armies of Cordova were the first to clash with Badr bin Mughira. Instead
+of giving them a chance to cross the border, Badr bin Mughira crossed the
 border and attacked them. Compared to the troops of Cordova, the number of his
 troops were quite less but his battle tactics were far superior. Instead of
-openly displaying the strength of his troops, Badr Bin Mughira was causing
+openly displaying the strength of his troops, Badr bin Mughira was causing
 immense damage to Cordova's army by conducting guerilla attacks with his
 army's thunder squads. Bands of his cavalry would suddenly appear and then
 disappear in front of the enemy's cavalry, leaving the left, right and rear
@@ -376,14 +376,14 @@ headquarters."
 Saying this Moosa signaled his comrades, prompted his horse and took-off. The
 soldiers saw them disappear in the clouds of dust just as they had appeared.
 
-When Badr Bin Mughira received the news that the rest of Granada's army was
+When Badr bin Mughira received the news that the rest of Granada's army was
 gathering to fight a decisive battle at Loja, he decided to give a final blow
 to the army of Cordova and sent across a message to his deputy, Mansour Bin
 Ahmed to position himself along with two thousand horsemen behind the army of
 Cordova.
 
 Mansour Bin Ahmed ravaged the cities and villages along his path and reached
-the rear of the army of Cordova with incredible speed. As soon as Badr Bin
+the rear of the army of Cordova with incredible speed. As soon as Badr bin
 Mughira received his news, he moved his infantry soldiers back a few miles and
 ordered his cavalry to attack the enemy's left and right flanks. On seeing the
 infantry retreating, the General of the Cordova's army came to the conclusion
@@ -399,7 +399,7 @@ the trenches and the only option the General saw was to retreat but by this
 time Mansour Bin Ahmed had already attacked from the rear and troops in the
 rear flank were pushing the troops in the center, as they took a beating.
 
-With Badr Bin Mughira's troops on the right and left and Mansour Bin Ahmed's
+With Badr bin Mughira's troops on the right and left and Mansour Bin Ahmed's
 horsemen in the rear, the army of Cordova had been taken into a tight noose.
 In front of them was that trench across which the archers were positioned. The
 analogy of the army of Cordova was no different than that of a ship in the
@@ -457,7 +457,7 @@ number of soldiers killed and injured was not less than twenty thousand. But
 within the past two days they had already received fifteen thousand fresh
 troops from different cities of Andalus.
 
-Abul Hassan had already known that Badr Bin Mughira along with his small army
+Abul Hassan had already known that Badr bin Mughira along with his small army
 of two thousand was blocking a huge flood of Cordova's battalion. But despite
 being aware of this, Abul Hassan's moral did not slump. Every soldier was
 there fighting without caring for victory or defeat. They knew very well that
@@ -539,8 +539,8 @@ Badr's army. By afternoon, Ferdinand's army started to show signs of defeat.
 
 Naeem had already condemned fourteen men to death and before he could fulfill
 his pledge of killing fifteen men, someone's lance pierced into his chest. He
-was going to fall but Badr Bin Mughira placed a hand on his back and made him
-sit in front of him. Badr Bin Mughira wanted to take him out of the
+was going to fall but Badr bin Mughira placed a hand on his back and made him
+sit in front of him. Badr bin Mughira wanted to take him out of the
 battlefield to the camp for the wounded but Naeem said, "Badr, I know my time
 has come but I have not fulfilled my pledge. I have killed fourteen of the
 enemy's soldiers. Now only one remains. Press my wound and stop the bleeding
@@ -557,14 +557,14 @@ target."
 Naeem, who was almost subconscious said, "Badr! Hold me close to you. If only
 I could fulfill my pledge."
 
-"You have already fulfilled your pledge." Saying this Badr Bin Mughira landed
+"You have already fulfilled your pledge." Saying this Badr bin Mughira landed
 his lance into the chest of a horseman who had approached for a duel. The
 Christian horseman fell off his horse but at the same time Naeem's head
 lowered in a state of becoming unconscious. Badr dashed his horse towards the
 tents of the wounded. A few young men took Naeem Bin Ridwan inside after
 taking him off the horse.  
 
-Badr Bin Mughira jumped off his horse and entered the tent. Bashir Bin Hassan
+Badr bin Mughira jumped off his horse and entered the tent. Bashir Bin Hassan
 was busy dressing the injured but he immediately turned his attention towards
 Naeem.
 
@@ -580,9 +580,9 @@ no less that a miracle. Looks as if some determination to complete a task is
 preventing the hand of death. He is gaining consciousness."
 
 "If he becomes conscious tell him that he has fulfilled his pledge." Saying
-this Badr Bin Mughira dashed out of the tent, jumped and mounted his horse.
+this Badr bin Mughira dashed out of the tent, jumped and mounted his horse.
 
-Moments later, on seeing traces of defeat in Ferdinand's army, Badr Bin
+Moments later, on seeing traces of defeat in Ferdinand's army, Badr bin
 Mughira gathered the best trained horsemen and ordered them to get ready for a
 pursuit.
 
@@ -619,21 +619,21 @@ Abbas was one of the commanders in the army of Granada. He said, "These events
 were such that they could only be believed by the eyes that have witnessed
 them but the ears might find them incredible to believe." Then, Abbas narrated
 the entire details of the battle. When he mentioned the feats of Mansour Bin
-Ahmed, Abul Hassan said, "Had I known that Badr Bin Mughira's quiver possessed
+Ahmed, Abul Hassan said, "Had I known that Badr bin Mughira's quiver possessed
 such arrows, then, instead of now, I would have declared war a few years
 earlier."
 
 After resting for a night, the exhausted soldiers woke up at the sound of the
 Muazzin's Aathaan at dawn. Abul Hassan had taken a good sleep after a long
 time. When he came out of his tent for prayers, his first question to the
-guards was, "Has Badr Bin Mughira arrived as yet?"
+guards was, "Has Badr bin Mughira arrived as yet?"
 
 The guards responded in the negative.
 
 On Abul Hassan's motion, supplications were offered after prayers for the
-safety of Badr Bin Mughira and his comrades. By afternoon, Abul Hassan's
+safety of Badr bin Mughira and his comrades. By afternoon, Abul Hassan's
 concern had transformed to perplexity. He dispatched a group of horsemen to
-know the whereabouts of Badr Bin Mughira and his comrades while he along with
+know the whereabouts of Badr bin Mughira and his comrades while he along with
 his generals stood on a cliff looking out for him.
 
 Suddenly an officer, pointing in a direction said, "Look over there!"
@@ -652,6 +652,6 @@ Abul Hassan said, "And what is that?"
 Al-Zeghel replied, "The Frontier Falcon is bringing a huge supply of booty
 along with him."
 
-On Abul Hassan's enquiry, the horsemen confirmed the fact that Badr Bin
+On Abul Hassan's enquiry, the horsemen confirmed the fact that Badr bin
 Mughira is herding along a large stock of cattle. Besides goats and sheep
 there were several horses and mules loaded with grain.

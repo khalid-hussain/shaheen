@@ -69,7 +69,7 @@ army is very disturbed by a rumor."
 
 "What is that?"
 
-"The people think that the Frontier Falcon is no other person but Badr Bin
+"The people think that the Frontier Falcon is no other person but Badr bin
 Mughira. Some of the prisoners of our army who have escaped, have confirmed
 this. The King is also of the same view. It could be possible that Abu Abdullah
 has not killed him."

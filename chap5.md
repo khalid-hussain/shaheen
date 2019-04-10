@@ -74,7 +74,7 @@ Bashir said, "There's no danger for guests here."
 Rabia was extremely restless for the next two days. She wanted to caution Badr
 Bin Mughira of the approaching danger but she also knew that she won't be able
 to do this without putting her father in danger. After pondering and
-reflecting hard, she came up with the idea of meeting Badr Bin Mughira. After
+reflecting hard, she came up with the idea of meeting Badr bin Mughira. After
 enquiring from Bashir Bin Hassan, she found out that he has gone to his
 residence in the forest and might not return for the next two days. There were
 four days left for Friday and after every prayer she kept supplicating for him
@@ -167,7 +167,7 @@ became louder and louder, the thumping of her heartbeats increased.
 When the rider came very close, Rabia wanted to come out from behind the tree
 and stand in the middle of the tracks but she could not gather enough courage
 and so she started looking towards the tracks from behind the tree. What she
-had thought was indeed correct. The rider was none other than Badr Bin
+had thought was indeed correct. The rider was none other than Badr bin
 Mughira. He wore a white turban on his head instead of a helmet.
 
 Despite the fact that the Frontier Falcon was heedless of her presence, Rabia
@@ -179,7 +179,7 @@ Friday is only two days away."
 
 "Wait!" she said quickly while moving forward onto the tracks.
 
-But her soft voice, dipped in modesty, did not reach Badr Bin Mughira's ears.
+But her soft voice, dipped in modesty, did not reach Badr bin Mughira's ears.
 He had moved a few meters away. Moments ago the ground that had held Rabia's
 feet were now pushing her towards the stream. She advanced towards the stream.
 With every step she was gaining speed until she eventually started running.
@@ -250,9 +250,9 @@ girl in Andalus and Castile prays for the safety of the Frontier Falcon.
 You're the last hope of this unfortunate people." Rabia's voice halted and
 tears flowed down her beautiful eyes.
 
-Badr Bin Mughira was quite touched and said, "The daughters of the nation
+Badr bin Mughira was quite touched and said, "The daughters of the nation
 should not express such fears that drive its men in becoming peace lovers. So,
-I thank you for your concern." Saying this Badr Bin Mughira placed his foot in
+I thank you for your concern." Saying this Badr bin Mughira placed his foot in
 the stirrup of his horse but Rabia quickly said, "Wait!"
 
 Removing his foot from the stirrup, Badr said, "Maybe I was not able to
@@ -276,13 +276,13 @@ and outside the fort. I felt as if they had broken the wall of the fort and
 entered inside. Because I was scared, I woke up. Maybe this dream is a result
 of my imagination but I could not rest without mentioning it to you."
 
-Badr Bin Mughira said, "I'm thankful to you. If your dream is true then,
+Badr bin Mughira said, "I'm thankful to you. If your dream is true then,
 God-willing, instead of hearing their slogans inside the fort, you will hear
 their cries outside the fort."
 
 Rabia said, "Ameen" in a suppressed voice and her sad face shone with happiness.
 
-Badr Bin Mughira said, "For the realization of this dream, I think you might
+Badr bin Mughira said, "For the realization of this dream, I think you might
 need to stay here a few more days. I will speak to your father. Maybe he would
 agree to postpone the trip for a few more days."
 
@@ -316,10 +316,10 @@ you. You are the nation's asset. You are the wealth of the Muslims. I wish I
 could do something else besides impressing you with my dream. I wish I was one
 of these diehard fighters who guard you. But I'm merely a superstitious girl
 who can only offer you dreams and supplications. Rabia's voice dipped. Tears
-overflowed from her eyes. For quite some time, it was difficult for Badr Bin
+overflowed from her eyes. For quite some time, it was difficult for Badr bin
 Mughira to decide on what he should say. Despite the simplicity, humbleness
 and humility, Rabia's face had such an expression of sobriety, seriousness and
-dignity that left Badr Bin Mughira quite impressed. He told her
+dignity that left Badr bin Mughira quite impressed. He told her
 apologetically, "I'm sorry that my words caused you distress. That wasn't the
 intention. I'm thankful to you. Okay, goodbye!"
 
@@ -408,7 +408,7 @@ my saying but you're wasting your talent here. Father says that if you go to
 Castile, the King would offer you a great position in the court.
 
 "I'm sure your father would never advise me to go to Castile. I'm much happier
-treating an ordinary soldier of Badr Bin Mughira than to sit in your King's
+treating an ordinary soldier of Badr bin Mughira than to sit in your King's
 court. Sometimes these people get inflicted with different physical ailments
 that can be treated. But your King and nobles are always inflicted with
 spiritual and moral diseases."

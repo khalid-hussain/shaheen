@@ -1,14 +1,14 @@
 
 # Al-Zeghel's Hopelessness
 
-Badr Bin Mughira was residing in a mountainous fort. One evening, as he was
+Badr bin Mughira was residing in a mountainous fort. One evening, as he was
 standing and giving instructions to the soldiers and officers gathered around
 him in the fort's courtyard, a horse rider galloped into the fort. He pulled
-the reins and halted his horse at a few distance away from Badr Bin Mughira.
-Badr Bin Mughira took two or three steps forward and said, "Bashir! It seems
+the reins and halted his horse at a few distance away from Badr bin Mughira.
+Badr bin Mughira took two or three steps forward and said, "Bashir! It seems
 that you have not come with any good news."
 
-Bashir Bin Hassan dismounted the horse and after shaking hands with Badr Bin
+Bashir Bin Hassan dismounted the horse and after shaking hands with Badr bin
 Mughira said, "The people of Granada would be happy with the news I have but I
 take it as a cause for serious concern. Where is Mansoor?"
 
@@ -46,7 +46,7 @@ reached Granada and Al-Zeghel has announced that he will handover the throne
 to his nephew as soon as he has dealt with the external threats. Currently he
 has been designated as the ruler of Loja."
 
-Badr Bin Mughira said, "Is this true? Al-Zeghel cannot make this mistake."
+Badr bin Mughira said, "Is this true? Al-Zeghel cannot make this mistake."
 
 Bashir said, "If this is a mistake, then Al-Zeghel has made it. I had met Abu
 Mohsin. He was saying that before attacking the border, he was preparing to
@@ -57,7 +57,7 @@ be without danger. Besides this, it can be said about Abu Dawood that he is
 with Ferdinand and he is such a man who can manipulate Abu Abdullah to do the
 worst of deeds."
 
-Badr Bin Mughira enquired, "And the people of Granada are happy about this?"
+Badr bin Mughira enquired, "And the people of Granada are happy about this?"
 
 "Yes. In their sight, Abu Abdullah has washed away his sins. There are many
 people who are restless but they too are not willing to take any practical
@@ -78,7 +78,7 @@ have gone to Morocco. Many of his family members have immigrated to Morocco. I
 am searching for him and if I find out that Abu Abdullah has lied to me then
 he would not get a good treatment.'"
 
-Badr Bin Mughira thought for a while and said, "Mansour! Prepare to leave for Granada!"
+Badr bin Mughira thought for a while and said, "Mansour! Prepare to leave for Granada!"
 
 Mansour replied, "But I have already prepared for the attack and the troops
 must be waiting for me at the border.""
@@ -114,7 +114,7 @@ not been generous with his treatment towards Abu Abdullah, the people would
 have said that my struggle was for personal gains. Apart from this, I'm afraid
 of turmoil. Abu Abdullah's supporters would start a civil war in Granada.'"
 
-Badr Bin Mughira said, "What would be a more generous treatment with Abu
+Badr bin Mughira said, "What would be a more generous treatment with Abu
 Abdullah that he has not been dragged into the markets of Granada with a noose
 around his neck. Tell Al-Zeghel not to give any weight to such people whose
 self-deceit is such that they want to build a nation with a tried and tested
@@ -128,7 +128,7 @@ traitors. It does not please them with bribes."
 
 Mansour said, "Write the letter. I am ready to go to Granada."
 
-After a few days, Mansour brought a reply from Al-Zeghel for Badr Bin Mughira.
+After a few days, Mansour brought a reply from Al-Zeghel for Badr bin Mughira.
 It said:
 
 "My dear! I received your letter after Abu Abdullah had served his last blow on
@@ -157,16 +157,16 @@ So, speed up your preparations. My son! I hope you would not be disheartened
 because of our faults. If you become hopeless then I'm afraid the flame of
 hope for Muslims in Andalus would vanish before the peep of the morning."
 
-In a very melancholy environment Badr Bin Mughira, Bashir and Mansour
+In a very melancholy environment Badr bin Mughira, Bashir and Mansour
 discussed the future of the Muslims of Granada and Andalus in the light of
 Al-Zeghel's letter for a while. Then, Mansour Bin Ahmed pulled out another
-letter from his pocket, presented it to Badr Bin Mughira and said, "This
+letter from his pocket, presented it to Badr bin Mughira and said, "This
 letter was given to me by Abu Abdullah's wife and she requested me not to
 present it to you unless your anxiety concerning Loja is not settled. She also
 expressed the concern that you might tear up the letter believing that she was
 defending her husband."
 
-Badr Bin Mughira took the letter from Mansour's hand and handed it over to
+Badr bin Mughira took the letter from Mansour's hand and handed it over to
 Bashir and said, "Read it out."
 
 Bashir opened the letter and started reading it:
@@ -188,7 +188,7 @@ feel that our relation is stronger than the relation of blood."
 
 Your Sister, Aisha.
 
-Badr Bin Mughira looked towards Mansour and asked, "So this means Abu
+Badr bin Mughira looked towards Mansour and asked, "So this means Abu
 Abdullah's wife is still in Granada?"
 
 "Yes. Abu Abdullah was adamant to take her along but his mother said that her
@@ -225,7 +225,7 @@ Al-Beera and Mashinal, laid a siege on Sakhra. Al-Zeghel left one-third of his
 army in Granada and advanced towards Sakhra and encamped a few miles away from
 the city. Routine skirmishes took place between the two parties. The citizens
 fought from within the confines of the city while Al-Zeghel attacked the
-enemies from the rear. Badr Bin Mughira had suddenly started a mass
+enemies from the rear. Badr bin Mughira had suddenly started a mass
 advancement from the North-east. Ferdinand was compelled to lift the siege of
 Sakhra and at the same time Ferdinand received the news that the king of
 France was advancing towards Pyrenees with a legion of troops. Ferdinand
@@ -282,7 +282,7 @@ people became helpless due to a lack of supplies and reinforcements. A few
 times, Al-Zeghel tried to advance towards Malaga through the mountains but in
 vain due to the presence of a large number Ferdinand's troops in the field.
 
-Even Badr Bin Mughira diverted his attacks towards the southeast instead of
+Even Badr bin Mughira diverted his attacks towards the southeast instead of
 the northeast but the minor losses could not uproot Ferdinand's cowardly
 troops and based on previous bad experiences he didn't permit his troops for
 an onslaught.
@@ -328,7 +328,7 @@ the mountains and forest provided a natural defense for the region.
 
 After a few days of preparations Ferdinand attacked Beegha and laid siege on
 the city but the mountain tribes came down and started warring from all sides.
-Realizing the significance of Beegha, Badr Bin Mughira gave the border's
+Realizing the significance of Beegha, Badr bin Mughira gave the border's
 security under Mansour Bin Ahmed's command and dashed towards Beegha with two
 thousand warriors and in the first attack itself he slaughtered five thousand
 of Ferdinand's troops. The following night he attacked from the rear and
@@ -339,7 +339,7 @@ After a year of preparations in Malaga, Ferdinand invaded Beegha again but
 this time instead of attacking the city, he destroyed all the areas within its
 vicinity, looted the cattle of the farmers, and ravaged their crops and
 gardens. To prevent any unprecedented attacks from the tribes he setup
-checkposts on every road leading to Beegha. The sudden attacks by Badr Bin
+checkposts on every road leading to Beegha. The sudden attacks by Badr bin
 Mughira and the tribes proved quite detrimental for Ferdinand but they could
 offer no respite to the people of Beegha. After a long siege of six months the
 people of Beegha eventually gave in due to intense famine.
@@ -347,8 +347,8 @@ people of Beegha eventually gave in due to intense famine.
 After making Beegha his bastion Ferdinand captured Al-Zeghel's forts in  one
 after the other.
 
-Bashir Bin Hassan was tying a bandage around Badr Bin Mughira's wounded arm.
-Mansour entered the room. Badr Bin Mughira enquired, "Mansour! You have not
+Bashir Bin Hassan was tying a bandage around Badr bin Mughira's wounded arm.
+Mansour entered the room. Badr bin Mughira enquired, "Mansour! You have not
 left as yet?"
 
 Mansour replied, "I had just stepped out of the fort when I met him."
@@ -368,7 +368,7 @@ stopped them across the bridge."
 procedure. Since their visit was unexpected, the soldiers did not have any
 special orders."
 
-Badr Bin Mughira said, "Did you tell them that you were going to him with my letter?"
+Badr bin Mughira said, "Did you tell them that you were going to him with my letter?"
 
 "Yes, I had even presented the letter to him but he returned it to me without
 reading it. He said that after traveling such a long distance it would be
@@ -382,7 +382,7 @@ Badr said, "I wanted to avoid this meeting. Anyways, this is a compulsion but
 both of you stay with me. If I don't live upto my obligation then please
 correct me."
 
-Later, Badr Bin Mughira, Bashir and Mansour were shaking hands with Al-Zeghel
+Later, Badr bin Mughira, Bashir and Mansour were shaking hands with Al-Zeghel
 and Abu Mohsin in a spacious room of the fort. When they sat down on the
 chairs after exchanging pleasantries, Al-Zeghel said after pondering for a
 while with his bowed down, "You must be knowing why I am here. I couldn't wait
@@ -417,7 +417,7 @@ then their days of destruction would come even closer. Only a few drops of
 blood run in the veins of my nation. Once those are also spent, they too would
 have nothing but tears of regret."
 
-Speaking upto this point, Al-Zeghel looked at Badr Bin Mughira. He was quiet.
+Speaking upto this point, Al-Zeghel looked at Badr bin Mughira. He was quiet.
 After thinking for a while, Al-Zeghel said, "But please don't think that I
 have lost hope in you and your warriors. You are the last hope for the Muslims
 of Granada and Andalus. I am sure that one day this valley would be our
@@ -444,9 +444,9 @@ objective is to give you time for preparations. I have brought a letter for
 you from Ferdinand."
 
 While saying this Al-Zeghel put his hand in the pocket of his robe, pulled out
-a paper and presented it to Badr Bin Mughira.
+a paper and presented it to Badr bin Mughira.
 
-Badr Bin Mughira took the piece of paper and handed it over to Bashir and
+Badr bin Mughira took the piece of paper and handed it over to Bashir and
 said, "Read it out."
 
 Bashir started reading Ferdinand's letter in a choked voice:
@@ -475,7 +475,7 @@ kingdoms of Granada and Andercus whose rulers have become our allies and they
 will not support any rebel against us whether Christian or Muslim."
 
 After reading Ferdinand's letter, Bashir looked towards Badr and everyone's
-glances also focused on his face. Badr Bin Mughira raised his neck, looked at
+glances also focused on his face. Badr bin Mughira raised his neck, looked at
 his comrades and said, "Mansour! Would you like to say something regarding
 this?"
 
@@ -488,7 +488,7 @@ Badr said, "And you, Bashir?"
 Bashir replied, "Even if I'm sure that the ship of my nation is sinking, even
 then I would not want to take the support of twigs."
 
-Badr Bin Mughira looked at Al-Zeghel and said, "Ferdinand is sure that we are
+Badr bin Mughira looked at Al-Zeghel and said, "Ferdinand is sure that we are
 weary and we desperately need to sleep. Before strangulating us he wants to
 make sure that we are asleep and to sing a lullaby to us he has chosen that
 very person who violently shook Granada time and again from its sleep of total
@@ -522,7 +522,7 @@ But let me tell you that sacrifice itself is a goal. If fate does not have a
 life of dignity for us, then the path to a death of dignity is not closed for
 us as yet."
 
-Badr Bin Mughira stood up from his chair in excitement and said, "A nation's
+Badr bin Mughira stood up from his chair in excitement and said, "A nation's
 blood does not end by flowing. It only dries up when they accept a life of
 indignity. Tell Ferdinand that we know how to pay the price of our freedom. So
 far Ferdinand's flood of victories have merely broken dams of sand but heading
