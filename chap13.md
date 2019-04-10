@@ -100,7 +100,7 @@ maybe that Abu Dawood was also his instrument and maybe you made the mistake
 of dancing to the tune of this person who was a mere servant of Ferdinand. You
 relied on him but when the time came, he left you and fled. You were a toy in
 his hands. He instigated you against your father and you revolted. He advised
-you to arrest Abu Moosa and you sent your best friend to prison. He advised
+you to arrest Abu Musa and you sent your best friend to prison. He advised
 you to kill the Frontier Falcon and you agreed to deprive the people of
 Andalus from their best friend. He handed a flame to you and you were prepared
 to burn down your hay stacks. He made you commit such crimes that you would
@@ -381,25 +381,25 @@ Later on, five thousand soldiers were leaving from the western gate of the
 city. Abu Abdullah and Abu Mohsin were all the way in the front. This army
 offered Fajr prayers a few distance away from the city. Before leaving for the
 second time, Abu Mohsin took Abu Abdullah aside and said, "I heard that Abu
-Moosa is in your custody. If this is true, then there is no better person than
+Musa is in your custody. If this is true, then there is no better person than
 him to lead this army. If you have not yet thought of this, then, we have
 still not come that far."
 
 Abu Abdullah appeared very perturbed. He looked at Abu Mohsin and said, "Abu
-Moosa is not in Al-Hamra and maybe I won't be able to answer any question
+Musa is not in Al-Hamra and maybe I won't be able to answer any question
 about him until we return from the battle...anyway, rest assured that Abu
-Moosa is alive and when the time comes I will appear in front of him and say,
-'Abu Moosa! Your criminal stands in front of you. Pronounce a punishment for
+Musa is alive and when the time comes I will appear in front of him and say,
+'Abu Musa! Your criminal stands in front of you. Pronounce a punishment for
 me.' And I'm sure by that time the list of my deed won't be as dark. At the
 moment, even if he was not far away from me, I won't have the courage to face
 him. I want to face him when I'm drenched in my blood and my face is blemished
-with wounds and when all I could have mustered to say is, 'Abu Moosa! Your
+with wounds and when all I could have mustered to say is, 'Abu Musa! Your
 criminal is going in front of a grand court. Will you not forgive his sins?'"
 
 More than Abu Abdullah's words, Abu Mohsin was more impressed with his voice.
 After pondering a while with his bowed down, Abu Abdullah looked at Abu Mohsin
 and said, "You can understand the condition of my heart but if these people
-ask me regarding Abu Moosa, then I'm afraid no statement of mine would be able
+ask me regarding Abu Musa, then I'm afraid no statement of mine would be able
 to satisfy them."
 
 Abu Mohsin said, "Rest assured! At the moment all they know is that you are
@@ -472,7 +472,7 @@ reorganizing the army anew. He asked him to encamp at a secure position
 instead of advancing further into enemy territory and keep the enemy engaged
 in minor skirmishes. The generous uncle also wrote to his nephew, "You have
 expiated for your past mistakes and on your return you wouldn't find your
-uncle and father any less generous than the people of Granada. Abu Moosa is
+uncle and father any less generous than the people of Granada. Abu Musa is
 untraceable. We thought he would be with you but the people coming from the
 front do not confirm this notion of ours. Where is he? The people of Granada
 are very concerned for him."

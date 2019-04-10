@@ -63,7 +63,7 @@ Badr bin Mughira enquired, "And the people of Granada are happy about this?"
 people who are restless but they too are not willing to take any practical
 steps for opposition."
 
-"What about their concern for Moosa. Has that been addressed?"
+"What about their concern for Musa. Has that been addressed?"
 
 "What Abu Abdullah has made known about him is that he had escaped from his
 custody. He had produced some witnesses in front of Al-Zeghel."
@@ -71,7 +71,7 @@ custody. He had produced some witnesses in front of Al-Zeghel."
 "And Al-Zeghel believed this?"
 
 "I told him that if he had escaped, he would have surely come to you but
-Al-Zeghel said, 'Abu Moosa was a very proud man and Abu Abdullah was his
+Al-Zeghel said, 'Abu Musa was a very proud man and Abu Abdullah was his
 childhood friend. It's possible that after Abu Abdullah's misbehavior he did
 not see it appropriate to show his face to anyone in Granada. Maybe he might
 have gone to Morocco. Many of his family members have immigrated to Morocco. I

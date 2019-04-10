@@ -7,7 +7,7 @@ chapters were inked with the blood of Arab conquerors and the great leaders of
 the Umayyad dynasty. Now this great nation, whose grandeur would silence the
 defiant waves of the Mediterranean, was writing its closing chapter with tears
 of hopelessness. That tree of culture and civilization, grown by the
-chivalrous Tariq Bin Ziyad, Moosa Bin Naseer and the successors of Abdul
+chivalrous Tariq Bin Ziyad, Musa Bin Naseer and the successors of Abdul
 Rehman, was now facing the strong and defiant winds of autumn.
 
 The Muslims entered this country like a storm. When all the walls of

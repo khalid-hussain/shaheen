@@ -152,7 +152,7 @@ have more torches in my room. When these finish, replace them with new ones."
 Saying this Abu Dawood left the room.
 
 At the time of the isha prayers, Badr bin Mughira, the King of Granada's
-brother, Al-Zeghel and two renowned commanders of Granada's army, Moosa and
+brother, Al-Zeghel and two renowned commanders of Granada's army, Musa and
 Al-Zeghairi, entered the fort. Fifteen soldiers and junior officers of Granada
 also accompanied them.
 
@@ -174,7 +174,7 @@ in the company of the Frontier Falcon has been the best incident that ever
 happened to me. And that great man from Granada, whom I would have considered
 my great fortune had I even seen him from a far distance, today, is in front
 of me. If you don't consider it disrespectful, I would like to kiss this holy
-hand that has had the honor of holding the swords of Moosa Bin Naseer and
+hand that has had the honor of holding the swords of Musa Bin Naseer and
 Tariq Bin Ziyad after centuries."
 
 Al-Zeghel was the kind of practical individual who felt very uncomfortable
@@ -183,7 +183,7 @@ didn't have the nerve to pull his hand back. Abu Dawood enthusiastically
 placed a kiss on his hand along with a couple of flaming tears that would flow
 out of Abu Dawood's eyes at the spur of a needy moment.
 
-Abu Dawood expressed similar emotions after being introduced to Moosa and
+Abu Dawood expressed similar emotions after being introduced to Musa and
 Al-Zeghari. These people entered the mosque. Abu Dawood performed the duty of
 leading the congregational prayers.
 
@@ -220,7 +220,7 @@ everything I do."
 
 "Don't worry about that."
 
-After this Al-Zeghel, Moosa and Al-Zaghairi asked Abu Dawood a number of
+After this Al-Zeghel, Musa and Al-Zaghairi asked Abu Dawood a number of
 questions about the Castilian army's preparedness and instead of giving them
 the correct answers, he replied with answers that would please them.
 
@@ -249,7 +249,7 @@ Abu Dawood said, "But I have not seen more than 20 to 25 soldiers in the fort to
 "The protection of this fort is done far away from its four walls. Fortunately,
 more than half of my troops are here. I will be right back."
 
-Moosa said, "I will come with you."
+Musa said, "I will come with you."
 
 Badr bin Mughira replied, "I am afraid that you might become a target of an
 arrow of one of my soldiers. I too might not go out to lead the fight. I
@@ -591,7 +591,7 @@ He was saying that 'Thank God that you will have to stay here a few more days.'
 
 "You liar!" Angela said and burst into a laughter.
 
-Al-Zeghel, Moosa and Al-Zeghairi were amazed at Badr bin Mughira's
+Al-Zeghel, Musa and Al-Zeghairi were amazed at Badr bin Mughira's
 preparedness after seeing the map of the battlefield in the light of the
 morning. Very few of the attackers were able to escape with their lives. Badr
 Bin Mughira's archers had encircled the attackers in the valleys and ditches.
@@ -712,7 +712,7 @@ general. That day is near when you will hold Granada's flag but today I'll
 hold the flag of the Frontier Falcon. Don't worry Badr, I'm not only good at
 giving orders, I'm also good at taking orders."
 
-Moosa and Al-Zaghairi, along with their comrades, followed Al-Zeghel's example
+Musa and Al-Zaghairi, along with their comrades, followed Al-Zeghel's example
 and changed into Badr's soldiers' uniform, ready to join the mission.
 
 After a while, Badr bin Mughira rode out of the fort with 3,000 horsemen
@@ -737,7 +737,7 @@ the other side of the border. And those who are severely injured should be
 given treatment. I shall remain here for a few days."
 
 After this, when Badr bin Mughira was discussing future strategies with
-Al-Zeghel, Moosa, Al-Zaghairi then Al-Zeghel said, "Ferdinand won't delay in
+Al-Zeghel, Musa, Al-Zaghairi then Al-Zeghel said, "Ferdinand won't delay in
 declaring war. Had he captured the fort, war would have started. We shouldn't
 give him more time to prepare. After hearing the news of your victory, the
 people of Granada's morale would be boosted tremendously. I plan to give the
@@ -771,7 +771,7 @@ handover the command of your troops to a trustworthy person and come to
 Granada. Maybe Abul Hassan might be ready to jump into the war arena a day or
 two after your arrival itself."
 
-Moosa said, "I think if he comes to Granada with a few of his contingents it
+Musa said, "I think if he comes to Granada with a few of his contingents it
 would have a grand impact on the people and I also want to give the command of
 the Granada's storm brigades in his hands during the initial stages of the
 war. The morale of the people will take a tremendous boost because of his
@@ -804,7 +804,7 @@ Al-Zaghairi asked, "If you don't mind my asking, what is the strength of your tr
 Badr bin Mughira replied, "It is double the amount of what you have witnessed
 so far."
 
-Moosa said, "Let's assume that circumstances change drastically and you're
+Musa said, "Let's assume that circumstances change drastically and you're
 compelled to stay more in Granada than here, then, do you have anyone from
 among your commanders who could take-up your position and deal with the enemy
 like you dealt during that unprecedented attack? I mean, do you have anyone

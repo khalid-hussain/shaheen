@@ -432,17 +432,17 @@ Rabia sat down and after thinking for a while, Badr said, "You know that because
 of Ferdinand's long siege, Granada's condition has become alarming. Whatever
 little supplies that were being sent there by our efforts through Sierra Nevada
 can't be not enough for the needs of thousands of human beings. People are sick
-and tired of starving. Now winter is approaching. With me, Moosa had decided
+and tired of starving. Now winter is approaching. With me, Musa had decided
 that he would attack with the army of Granada on the first of the next month and
 I had promised to attack, with all my might, from the rear on this day. We were
-sure of our victory but today I received Moosa's letter. He has written that Abu
+sure of our victory but today I received Musa's letter. He has written that Abu
 Abdullah's minister has begun negotiations for a peace deal. Majority of the
 leading nobles are in support of peace and with the efforts of the hypocrites
 there is a growing segment among the public who is desperate for peace. Since
 there was a concern that there might be a possibility of Abu Abdullah and his
-nobles to have a change of heart, therefore, Moosa had postponed this attack. He
+nobles to have a change of heart, therefore, Musa had postponed this attack. He
 has written that he will inform me once he has decided on some other day for the
-attack. Moosa is not of those beings who would become hopeless but after reading
+attack. Musa is not of those beings who would become hopeless but after reading
 his letter I feel that the conditions in Granada are very alarming. Rabia! You
 can understand that, God forbid, if Granada slips out of our hands then the
 flood of Castile will surge on us. Therefore, I have decided to send you to

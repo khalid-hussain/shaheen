@@ -158,7 +158,7 @@ become Prime Minister you need to make such a person to be the Sultan. If you
 had the contentment of reaching to this position when leaders like Abul Hassan
 and Al-Zeghel were present, then you would have never betrayed them and as
 proof of my claim it is enough for me to say that the only reason you had a
-person like Moosa murdered is that in his presence it would have been
+person like Musa murdered is that in his presence it would have been
 impossible for you to get even an ordinary position. Otherwise, who does not
 know that he could have become a great leader of Granada. My friend, we both
 have our interests in front of us. To fulfill your interests, you became a
@@ -180,7 +180,7 @@ taking support of a sinking ship, why don't you take the support of that
 mariner on whose signals the ships sink and swim? You know that now if anyone
 wants to be the King or Minister of Granada it is important to have the
 approval of Ferdinand. I can't understand the person who does not regret
-Moosa's murder but would be upset on handing over an idiot like Abu Abdullah
+Musa's murder but would be upset on handing over an idiot like Abu Abdullah
 to Ferdinand?"
 
 Tareef replied, "When I was a traitor, I didn't realize that the Christians
@@ -425,9 +425,9 @@ make Ferdinand happy by betraying Abu Abdullah but this would be treachery.
 Could it not be possible that the decision Ferdinand has taken against Abu
 Abdullah is because of Abu Dawood's advice? And if Abu Dawood can betray Abu
 Abdullah, can't he then betray me as well? I won't go to Malaga. I will go to
-Granada but what can I do after getting to Granada? Moosa is in my custody. I
+Granada but what can I do after getting to Granada? Musa is in my custody. I
 am willing to face the consequences after releasing him. I will fall at his
-feet and say, "Moosa! The nation needs you but now what can even Moosa do?"
+feet and say, "Musa! The nation needs you but now what can even Musa do?"
 
 When this mental conflict would become unbearable for Tareef, he would turn
 his attention towards his companions and strike a conversation with them.
@@ -520,7 +520,7 @@ would bend to one side at times or to the other. His grip on the reins of the
 horse was loosening. Hassan took his horse closer and he put his hand around
 Tareef's back and pulled him onto his horse.
 
-While groaning Tareef said, "Take me to Moosa."
+While groaning Tareef said, "Take me to Musa."
 
 After passing through lush green gardens Hassan halted his horse at an iron
 gate of the four walls of an old house. A black slave peeped out of the iron
@@ -539,7 +539,7 @@ A negro ran out and returned promptly and said, "He is coming."
 A middle-aged yet well-built man entered the room. Seeing Tareef unconscious
 on the bed he looked at Hassan with querying glances.
 
-Hassan said, "Yaqoob, it is the master's order to release Moosa from captivity
+Hassan said, "Yaqoob, it is the master's order to release Musa from captivity
 immediately and present him here."
 
 In a state of bewilderment and concern, Yaqoob first looked at Hassan and then
@@ -566,21 +566,21 @@ was pitch dark inside. When Yaqoob turned an iron latch near the wall next to
 the door, a small window opened up near the ceiling of the opposite wall and
 foggy light entered the room. This room was empty and a man stood behind the
 right side of another cell's narrow door's iron bars and looked towards those
-who had created a commotion to his solitude. This was Moosa Bin Abi Ghassan.
+who had created a commotion to his solitude. This was Musa Bin Abi Ghassan.
 Even a withered face of this awesome and formidable personality was enough to
 shake the hearts of onlookers.
 
 Hassan took a step forward and said, "We have come to take you out of
 captivity on the orders of Tareef Bin Malik."
 
-Moosa kept looking at Hassan silently. Hassan repeated, "He is injured and his
+Musa kept looking at Hassan silently. Hassan repeated, "He is injured and his
 last wish is that you give him a chance to fall at your feet. We have brought
 him here in a state of unconsciousness. We know that you won't forgive him but
 he has repented and maybe after a while his matter would be in front of his
 Lord. All of us are your criminals and if you want to punish us then you won't
 face any resistance from our side."
 
-On Hassan's signal, Yaqoob opened the door fearfully. Moosa came out of the
+On Hassan's signal, Yaqoob opened the door fearfully. Musa came out of the
 cell and stood silently for a moment and then spoke, "I fail to understand how
 this punishment descended upon Tareef when he was willing to commit every sin
 for Abu Abdullah."
@@ -590,11 +590,11 @@ consider him forgivable once you're aware of all the events but at the moment
 the flame of his life is flickering. He is waiting for you. He wants to say
 something to you."
 
-Moosa said, "Let's go."
+Musa said, "Let's go."
 
-Tareef groaned in pain and said, "Quick, take me to Moosa."
+Tareef groaned in pain and said, "Quick, take me to Musa."
 
-One of his companions said, "Hassan has gone to fetch Moosa. They must be
+One of his companions said, "Hassan has gone to fetch Musa. They must be
 coming here shortly."
 
 Tareef opened his eyes, looked around and while sitting up on the bed said, "I
@@ -605,28 +605,28 @@ Tareef hung his feet down from the bed. Two men assisted him. When they took
 him out the door, a negro slave said, "They are coming."
 
 Tareef said, "Leave me. I don't need support." The servants complied to his
-orders against their wishes. Tareef took a few steps. He could see Moosa on
+orders against their wishes. Tareef took a few steps. He could see Musa on
 the other side of the veranda.
 
 He began to blackout. He stumbled forward and stood embracing a pillar of the
-veranda. Moosa came and stopped close to him and stared at him in
+veranda. Musa came and stopped close to him and stared at him in
 bewilderment. With shivering lips Tareef said in a voice drenched in pain,
-"Moosa! Your criminal is knocking at the gates of death but before
+"Musa! Your criminal is knocking at the gates of death but before
 that...before that..."
 
 Tareef left the support of the pillar, took a few steps forward and
-involuntarily fell at Moosa's feet. For a second, Moosa stood numb without any
+involuntarily fell at Musa's feet. For a second, Musa stood numb without any
 motion. Then he tried to move back but his feet were clutched in Tareef's
 arms. Even in a state of unconsciousness this grip was quite strong. Suddenly
-Moosa realized that his feet were becoming wet. Tareef was spending away his
-saved tears at his feet. No, these were not tears. Moosa was heart-broken. He
+Musa realized that his feet were becoming wet. Tareef was spending away his
+saved tears at his feet. No, these were not tears. Musa was heart-broken. He
 had forgotten all the ills of the past. He bent down and picked Tareef up.
-Instead of tears, a stream of blood was flowing out of his mouth. Moosa picked
+Instead of tears, a stream of blood was flowing out of his mouth. Musa picked
 him up and took him inside. He placed him on the bed and tried to revive him
 but the fatigued traveler had breathed his last after arriving to his final
 destination.
 
-Moosa supplicated, "Surely we belong to  and to Him shall we return" and
+Musa supplicated, "Surely we belong to  and to Him shall we return" and
 despite trying hard to hold back tears, they flowed over. These tears fell on
-Tareef's face. Moosa moved his head from his lap onto the pillow and said in a
+Tareef's face. Musa moved his head from his lap onto the pillow and said in a
 husky voice, "Tareef! You were one of us."

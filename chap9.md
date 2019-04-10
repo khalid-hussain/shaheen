@@ -22,13 +22,13 @@ some chiefs have started to feel that at this crucial period it's important to
 make changes to the Emirate of Granada. I have already met a few Berber and
 Hispanian chiefs. They haven't specified a very high price for themselves."
 
-"But who would dare to do anything till Moosa is around?"
+"But who would dare to do anything till Musa is around?"
 
 "When the time comes, we will deal with him too. If those chiefs who Abul
 Hassan has arrested for treason are set free, then they would prove to be a
 great support for you."
 
-"But this won't be possible during Moosa's presence."
+"But this won't be possible during Musa's presence."
 
 "I think he is your friend."
 
@@ -114,7 +114,7 @@ years of your life. The police is in our hands. You have already bought the
 loyalties of the Palace Warden. Most of the Berber and Hispanic nobles are
 awaiting your orders. The treasury is in your hands.
 
-"And Moosa?"
+"And Musa?"
 
 "Imprisoning him is not difficult."
 
@@ -130,29 +130,29 @@ Hispanian Muslims and the Arabs Muslims. They will support you just as they
 support their chiefs. To please them even more, you can release their
 prisoners. You have merely two days to arrive to a decision. After this, you
 might never lay hands on such an opportunity. I have conceived on how to have
-Moosa arrested."
+Musa arrested."
 
 At night, a spacious chamber of the Al-Hamra Palace was lit by lanterns of
 silver and gold. Granada's Berber and Hispanian Muslim nobles were seated on
 chairs talking with Abu Abdullah. Silence spread for a moment over the
-gathering as Moosa entered.
+gathering as Musa entered.
 
-Moosa ran a cursory glance at the attendees and came close to Abu Abdullah and
+Musa ran a cursory glance at the attendees and came close to Abu Abdullah and
 whispered, "I would like to say something to you in private."
 
 Seeing his attitude Abu Abdullah became nervous, but after a second he
 gathered himself and said, "You can say whatever you have right here. By the
 grace of God all of them are Muslims."
 
-Moosa said, "Some things cannot be said in front of everyone."
+Musa said, "Some things cannot be said in front of everyone."
 
 "But at the moment we are not ready to call off this assembly. If it is some
 important matter, then say it right here."
 
-Moosa had already scrutinized the assembly. Most of those gathered were those
+Musa had already scrutinized the assembly. Most of those gathered were those
 who had been granted entry into the Al-Hamra Palace for the first time. To
 this date no noble of the Sultanate had dared to remain seated on seeing
-Moosa. Hearing Abu Abdullah's words, Moosa thought that his ears were failing
+Musa. Hearing Abu Abdullah's words, Musa thought that his ears were failing
 him. His face blushed with anger and restraining himself said, "Prince, I have
 heard that you have released the rebels."
 
@@ -164,7 +164,7 @@ heard that you have released the rebels."
 
 "And you have placed the worst traitors of Granada on very important posts."
 
-Abu Abdullah thundered back and said, "Moosa, misbehaving with us is not one
+Abu Abdullah thundered back and said, "Musa, misbehaving with us is not one
 of your duties."
 
 "At times the feeling of duty makes a person bold and outspoken."
@@ -179,16 +179,16 @@ On hearing this, the nobles started whispering to each other and a Berber
 chief stood up and said, "Is the honor of Abu Abdullah's diehard supporters
 not even safe in his own court?"
 
-Moosa turned towards him and said, "Who is it who claims to be a diehard
+Musa turned towards him and said, "Who is it who claims to be a diehard
 supporter of Abu Abdullah more than me?"
 
 Another chief stood up and said, "If the Crown Prince so commands, our swords
 are ever ready to shut the mouth of the disobedient."
 
-Moosa said in a voice trembling with rage, "How dare you! Aren't you the same
+Musa said in a voice trembling with rage, "How dare you! Aren't you the same
 traitor who pitched the Berbers against the Arabs? Do you think you have
 expiated your past crime just by reaching the Al-Hamra Palace from your prison
-cell? And you think that the metal of Moosa's sword would become soft by
+cell? And you think that the metal of Musa's sword would become soft by
 merely seeing a few traitors gathered at the Al-Hamra? I have come to Abu
 Abdullah and if anyone of you thinks that his sword can stop me from
 expressing my views in front of Abu Abdullah then I invite him to come
@@ -199,10 +199,10 @@ but who would not even dare to place their hand over the handle of their
 swords? You consider the enemies of Granada to be your friends?"
 
 By this time Abu Abdullah had lost his patience. He stood up from his place,
-came forward and said, "Moosa, have you come here with the intention of
+came forward and said, "Musa, have you come here with the intention of
 killing me?"
 
-"I and the intention of killing you? What are you saying?" Saying this Moosa
+"I and the intention of killing you? What are you saying?" Saying this Musa
 removed his sword and presented it to Abu Abdullah.
 
 Abu Abdullah took the sword, tossed it to over to a side and clapped his
@@ -211,7 +211,7 @@ Abdullah's cue. Abu Abdullah said, "I knew the highest security at Al-Hamra's
 gates won't stop you from getting here but let me assure you that you won't be
 able to leave through the same path you entered."
 
-A dumbfounded Moosa was staring at Abu Abdullah. The very Abu Abdullah whom he
+A dumbfounded Musa was staring at Abu Abdullah. The very Abu Abdullah whom he
 had spent his childhood with. He had taught him to mount a horse, play with a
 sword and lance. He was baffled what wrong he had committed. In the morning,
 Abu Abdullah had personally called him and ordered him to recruit volunteers
@@ -238,7 +238,7 @@ recruiting volunteers for the Loja front. I am guilty of entering the palace
 using a secret entrance and I'm guilty of calling these traitors as traitors.
 My greatest crime is that I am your friend. Please recommend my punishment."
 
-Saying this Moosa bowed his head down. Abu Abdullah's eyes were filled with
+Saying this Musa bowed his head down. Abu Abdullah's eyes were filled with
 tears. He wanted to place his hand on his shoulder but someone came forward
 and held his hand. It was Abu Dawood.
 
@@ -246,18 +246,18 @@ Abu Abdullah looked at his teacher, who shook his head.
 
 Abu Abdullah looked towards the soldiers and said remorsefully, "Take him away."
 
-Moosa raised his head. He was standing between the bare swords of the soldiers
+Musa raised his head. He was standing between the bare swords of the soldiers
 and the chiefs who, so far, had doubted Abu Abdullah's steadfastness, had also
 drawn out their swords.
 
-Moosa, whose thundering voice would unleash tremors in the walls of Hispania,
+Musa, whose thundering voice would unleash tremors in the walls of Hispania,
 was gaping at Abu Abdullah in a state of shock. The mujahid of Granada's
 tongue had gone mute.
 
 Abu Abdullah could not bear the sight. He looked the other way and shouted,
 "Take him away." However, his voice resonated more grief than anger.
 
-Moosa walked in front of the soldiers without uttering a word while Abu
+Musa walked in front of the soldiers without uttering a word while Abu
 Abdullah entered the other room wiping his eyes with his handkerchief. Abu
 Dawood said to the chiefs, "Please stay here. I will be right back."
 
@@ -268,7 +268,7 @@ Abu Abdullah said in a voice drenched with pain, "But he was my friend. My
 childhood friend."
 
 Abu Dawood said, "He was a beautiful thorn in your path that you loved but to
-reach your destination you have to remove many such thorns. If Moosa wants,
+reach your destination you have to remove many such thorns. If Musa wants,
 even now he can become a jewel of your crown and that can only be done when
 there is no other claimant to the Sultanate of Granada. When he's sure that
 you have taken Abul Hassan's place then he will have no objection in coming
@@ -299,13 +299,13 @@ Agreeing with Badr bin Mughira's suggestions, Al-Zeghel said, "After this
 victory, we won't even face any stiff resistance upto the walls of Castile. We
 should not give the crumbling enemy any chance to stabilize. As far as getting
 more soldiers from Granada is concerned, I think there is not a more suitable
-person than Moosa."
+person than Musa."
 
 An elderly chief said, "I too support the fact that we should move forward
 instead of returning backwards but my opinion that the Sultan should hand over
 this mission to Al-Zeghel and return to Granada. In past centuries, during
 such situations, discord at home has caused us immense damage. There is no
-doubt that Moosa is an able young man but when it comes to Granada, the sense
+doubt that Musa is an able young man but when it comes to Granada, the sense
 of security we get with the presence of the Sultan in Granada cannot be
 compared with anyone else. Miscreants might try to take advantage of the
 Sultan's absence but no one would dare raise their head while he is present
@@ -388,11 +388,11 @@ and said, "Have you come from Granada?"
 
 The newcomer replied, "Yes! I have come with an important piece of news."
 
-"Have you been sent by Moosa?"
+"Have you been sent by Musa?"
 
 "No. I have come on my own."
 
-"If you have not come through Moosa, then, your news can't be important and you
+"If you have not come through Musa, then, your news can't be important and you
 should have given consideration to the fact that this assembly was being
 addressed by the Sultan of Granada."
 
@@ -412,7 +412,7 @@ during wartime are dealt with severely."
 
 The newcomer said, "Had you looked carefully, you would have recognized me. I
 am the son of the Palace Warden of Al-Hamra. I am a student of Habeera Bin
-Saeed. For a few days I had been propagating jihad with Moosa...
+Saeed. For a few days I had been propagating jihad with Musa...
 
 A lot of the men here in the army recognize me, but if the terrible news that
 I have come here with were to be proved wrong, then, I would be more than
@@ -428,19 +428,19 @@ Al-Zeghel, "I have come with terrible bad news. There has been a revolt in
 Granada."
 
 Al-Zeghel cried out and said, "No! No! You must have dreamt. A revolt in
-Moosa's presence is impossible. You have dreamt. You are a spy of the enemy
+Musa's presence is impossible. You have dreamt. You are a spy of the enemy
 and want to distract us from the war front. Say that this is a lie." A
 distraught Al-Zeghel was shaking Sulaiman by holding both his arms. And
 Sulaiman was repeatedly saying again and again, "If only this was a lie. But
 it is not a lie. If only it were a lie."
 
-"But Moosa and revolt? This is impossible. You are insane."
+"But Musa and revolt? This is impossible. You are insane."
 
-Sulaiman said, "Moosa has been imprisoned by Abu Abdullah."
+Sulaiman said, "Musa has been imprisoned by Abu Abdullah."
 
 Al-Zeghel pushed Sulaiman to the ground and said to Al-Zaghairi, "Take him
 away. He is insane. Abu Abdullah can kill me, put his father in prison but he
-can die for Moosa. Take this insane man away."
+can die for Musa. Take this insane man away."
 
 Sulaiman said, "By today evening there will be more people coming, confirming
 the news I have given you. Abu Abdullah has announced his emirate. He has
@@ -498,7 +498,7 @@ news in front of the army. To face this new scenario, we could have delayed
 our decision to march forward by a day. Al-Zeghel! Why has your tongue gone
 mute? Tell me what crisis has befallen that the swords of these mujahideen
 can't compensate? Which palace has fallen that these mujahideen cannot
-rebuild? The greatest wealth of a general are his soldiers. Besides Moosa and
+rebuild? The greatest wealth of a general are his soldiers. Besides Musa and
 Abdullah, the people who are dearest to me are with me. Nobody's death will be
 unbearable for me. Didn't you see that there was not a trace of tear in my
 eyes when Naeem Ridwan was being lowered into the grave, although he was no
@@ -509,7 +509,7 @@ swiftly towards the tent. After entering the tent and seating him on the
 chair, Al-Zeghel said, "My brother! This messenger has come with the news of a
 great calamity. Abu Abdullah has announced his emirate and after releasing the
 rebels he has started a civil war in the city. The gates of Granada have been
-closed for us. Moosa is in Abdullah's custody."
+closed for us. Musa is in Abdullah's custody."
 
 These words fell upon Abul Hassan like lightening. He suddenly got up only to
 tremble back into his seat. He tried to speak but became tongue-tied. He
@@ -521,7 +521,7 @@ army. We can't even hide this news for long. More people will arrive today
 before the evening. I fear, like Granada, here too the swords of Arabs and
 non-Arabs soldiers might clash against each other. The chiefs of the army are
 gathering in my tent. First, get their oath of allegiance and then unravel the
-news to them. Today, only if Moosa were here. Don't be pessimistic. I am sure
+news to them. Today, only if Musa were here. Don't be pessimistic. I am sure
 the news of the victory at Loja would once again rejuvenate the flames of
 faith among the people of Granada. They will revolt against Abu Abdullah and
 open the gates of the city for us. Get up and be brave! This is no time to

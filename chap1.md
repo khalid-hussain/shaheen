@@ -112,23 +112,23 @@ who is a pure soldier."
 The armor-clad rider replied, "The purity of a soldier's intentions can only be
 judged in the battlefield and if fate would join your leader and I on the same
 front then the boiling blood from my wounds would testify to the purity of my
-intentions. Go and inform your leader that if he doubts Moosa's intentions then
+intentions. Go and inform your leader that if he doubts Musa's intentions then
 let him lay siege on any city of Castile. I, along with fifty of these soldiers
 would support him under the shade of the swords and raining arrows."
 
 On the other side the youth listened attentively to his speaker and without
 uttering a word, moved forward a few steps, wading his horse in the river. He
 moved close to the armor-clad rider, dismounted his horse, held out his hand and
-said, "If you are indeed Moosa, then, without asking you another question, I put
+said, "If you are indeed Musa, then, without asking you another question, I put
 forward my hand of friendship."
 
-While shaking the youth's hand, Moosa said, "So, are you Badr bin Mughira? I am
+While shaking the youth's hand, Musa said, "So, are you Badr bin Mughira? I am
 amazed that..."
 
 Badr bin Mughira interrupted him and said, "So, you are amazed as to why we
 didn't recognize each other at first sight."
 
-Moosa said, "This is exactly what I wanted to say. I expected you to be much
+Musa said, "This is exactly what I wanted to say. I expected you to be much
 older but I think you're in the right age to be called a falcon. Now, if you
 could forget the past grievances you have towards the royalty of Andalus, then,
 I would introduce you to whom I consider to be the last arrow in the quiver of
@@ -137,13 +137,13 @@ Andalus."
 "If you consider Murad Abu Abdullah Al-Zeghel to be the last arrow in the quiver
 of Andalus, then, meeting him would certainly be an honor. The mujahideen from
 Granada, who have joined my ranks, have spoken highly of only a handful of
-people and those army generals whom I heartfully desire to meet are Moosa and
+people and those army generals whom I heartfully desire to meet are Musa and
 Al-Zaighri and from the royal family the only person is Al-Zeghel."
 
-Moosa replied, "We could not bring Al-Zaighri along but if you can see past the
+Musa replied, "We could not bring Al-Zaighri along but if you can see past the
 white veil then consider Al-Zeghel right in front of you."
 
-When Badr bin Mughira looked towards Moosa's white-turbaned companion, he
+When Badr bin Mughira looked towards Musa's white-turbaned companion, he
 extended his right hand towards him and unveiled his face using his left hand.
 Al-Zeghel appeared to be about fifty years of age. Appearing deeply interested,
 he looked at Badr bin Mughira and said, "It is youth like yourself who are the
@@ -199,19 +199,19 @@ his hands, kissed it and said, "If nature has chosen this hand to raise the flag
 of rebellion then I kiss it."
 
 Al-Zeghel hugged Badr with open arms. Moving away from Al-Zeghel, Badr looked
-towards Moosa and said, "I welcome you and your companions."
+towards Musa and said, "I welcome you and your companions."
 
-Moosa moved forward, put his arms around him, to which Al-Zeghel smiled and
-said, "Moosa! This falcon has fallen in your hands after great difficulty. So,
+Musa moved forward, put his arms around him, to which Al-Zeghel smiled and
+said, "Musa! This falcon has fallen in your hands after great difficulty. So,
 don't let it go."
 
-While kissing Badr's forehead Moosa said, "Don't you worry. Instead of keeping
+While kissing Badr's forehead Musa said, "Don't you worry. Instead of keeping
 you in my custody, I will try to fly with you."
 
 "I know you quite well", Badr answered with a smile. "Who is not aware of the
 apple of Granada's eye."
 
-Moosa said, "Here, I must say something."
+Musa said, "Here, I must say something."
 
 "Please go ahead." said Badr.
 
@@ -223,7 +223,7 @@ evil."
 Badr laughed and replied, "Even if fifty men did have evil intentions, I do not
 consider it to be a grave danger."
 
-"And what makes you say that there is no army behind us", said Moosa.
+"And what makes you say that there is no army behind us", said Musa.
 
 Badr bin Mughira replied, "I was informed of your arrival when you are about
 twenty furlongs away and I was also aware that there was no army behind you and
@@ -231,7 +231,7 @@ when you were decending the mountain, I was on a tree listening to your
 conversation and despite that I was cautious. The fact is that your fifty men
 were within striking range of my men."
 
-With amazement, Moosa quickly glanced around at the surrounding trees. While
+With amazement, Musa quickly glanced around at the surrounding trees. While
 smiling, Badr said, "We don't call it an arrow if the target can see it. Let me
 put your curiosity to rest." Saying this he removed an arrow from his quiver,
 loaded it in the bow, aimed at the plank by a tree across the river and cried
@@ -241,12 +241,12 @@ arrow flew out of his bow and pierced itself into the plank, arrows rained from
 all directions, filling-up the plank. Leaves, sliced by the arrows, fell-off the
 trees.
 
-In amazement Moosa said, "So, your men are even behind us on the trees?"
+In amazement Musa said, "So, your men are even behind us on the trees?"
 
 "Yes and even in front of you. You will find arrows on the other side of the
 plank too."
 
-Al-Zeghel said, "Moosa! We have to learn a lot from this youth. I will send a
+Al-Zeghel said, "Musa! We have to learn a lot from this youth. I will send a
 few generals here. I want to put forward a lot of suggestions to him and I have
 decided to return today itself."
 
@@ -273,7 +273,7 @@ warrior's might. Like Badr, he too wore a white turban over his head but he had
 a red robe over his chainmail. Two bags were tied next to his horse's saddle.
 
 While looking towards him, Badr said, "Bashir, I'm glad you have arrived. This
-is the king of Andalus's brother, Al-Zeghel and this is Moosa. They have brought
+is the king of Andalus's brother, Al-Zeghel and this is Musa. They have brought
 us good news. Soon they are going to announce war against Castille.
 
 Bashir jumped off his horse and shook hands with them to which Badr said, "This
@@ -307,8 +307,8 @@ told me that you do not have any supply logistics either, then I could not think
 of any other options but to have some food preparations done.
 
 After having lunch, everyone offered their afternoon prayers in the leadership
-of Al-Zeghel. Later, Badr, Al-Zeghel, Moosa and Bashir separated themselves from
-the rest and sat under a tree. Moosa spread out the map of Andalus and discussed
+of Al-Zeghel. Later, Badr, Al-Zeghel, Musa and Bashir separated themselves from
+the rest and sat under a tree. Musa spread out the map of Andalus and discussed
 the various options of the oncoming war. Al-Zeghel agreed with various options
 put forward by Badr and said, "A few days before the attack, you will be called
 to Granada. I would like to give some more bordering areas under you command

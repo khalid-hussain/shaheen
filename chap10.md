@@ -53,15 +53,15 @@ azure skies but I too have been locked into the cage of Al-Hamra. If only it
 was possible for me to get Abu Abdullah to a decent level of civility.
 
 I am surprised how unaware I have been with the real situation and not only me
-– Abu Moosa, Al-Zeghel and Sultan Abul Hassan – were unaware of these
+– Abu Musa, Al-Zeghel and Sultan Abul Hassan – were unaware of these
 conspiracies that were been hatched within the four walls of Al-Hamra. The
 real ruler of Granada is not Abu Abdullah but it is those chiefs and elders
 who have already received the price of Granada from Ferdinand before these
-events. When Abu Abdullah announced the revolt, Abu Moosa was the only person
+events. When Abu Abdullah announced the revolt, Abu Musa was the only person
 in Al-Hamra who was loyal to Abul Hassan and now he lies in some dark cell.
 
 In such circumstances, what am I to do? The spell of the organized power of
-the hypocrites could not even be broken by Abu Moosa's mesmerizing oration.
+the hypocrites could not even be broken by Abu Musa's mesmerizing oration.
 And a slight interference from my part was not tolerated. I had only two
 options. One, to raise the slogan of treachery in front of Abu Abdullah and a
 packed audience and in return spend the rest of my life in a dingy cell of a
@@ -153,9 +153,9 @@ After capturing Al-Hamra, Granada would be in your hands. Abu Abdullah would
 dance to your tunes. The chiefs of the nation sellers would be called into the
 palace in small groups and the ones that cannot be reformed would be handed
 over to the executioners. After this, on Abu Abdullah's behalf, the army would
-be invited to gather at the gates of Al-Hamra and Abu Moosa would be removed
+be invited to gather at the gates of Al-Hamra and Abu Musa would be removed
 from prison and placed in front of them to deliver a speech. You can't imagine
-how much love the soldiers still have for Moosa. Then, Abu Abdullah, whom I
+how much love the soldiers still have for Musa. Then, Abu Abdullah, whom I
 personally believe is unpardonable, would be at your mercy.
 
 Now all I need to tell you is what suggestion I have come up with regarding

@@ -169,7 +169,7 @@ sister."
 
 Like Abu Dawood, Abu Abdullah was also concerned that in case this news
 reached the harem he would be taken to task by his mother and wife, who had
-not touched their food for several days on hearing about Moosa's captivity.
+not touched their food for several days on hearing about Musa's captivity.
 
 He said to Abu Dawood, "I have asked the jailer to inform me as soon as he is
 killed. I don't want to enter the harem until this task is completed."

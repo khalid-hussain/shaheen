@@ -6,9 +6,9 @@ might. Like the King and Queen, all the knights of Andalus too had come after
 taking the oath that they would not return without conquering Granada. To keep
 the Shaheens of the valley and the mujahideens of Alpujarras engaged, he had
 already dispatched an army of horsemen. The command of the army of Granada was
-in Moosa's hand. Although there was a huge group of hypocrites and traitors
+in Musa's hand. Although there was a huge group of hypocrites and traitors
 working against them, however, majority of the public was ready to give up their
-lives on Moosa's cue.
+lives on Musa's cue.
 
 Ferdinand had learned from his past failures. Despite the superiority of his
 might, instead of directly attacking the city, he encamped at a distance and
@@ -24,9 +24,9 @@ open to Granada for supplies and reinforcements was from Mount Basharat. Limited
 supplies of grain, fruits and vegetables were coming into Granada from the
 fertile valley of Sierra Nevada but this wasn't enough for the thousands of
 people of Granada. The condition of the people of Granada was deteriorating
-day-by-day. As for Moosa, it was not easy for him to come out in the open field
+day-by-day. As for Musa, it was not easy for him to come out in the open field
 and challenge Ferdinand's cowardly army. Bands of a small group of horsemen
-would go out and return after inflicting damages to Ferdinand's army. Moosa
+would go out and return after inflicting damages to Ferdinand's army. Musa
 thought that Ferdinand would be compelled to attack the city once he saw the
 daily increment in the destruction of his troops but these losses did not have
 any effect on Ferdinand. His army kept busy in digging trenches and
@@ -65,7 +65,7 @@ One knight got excited but Ferdinand held the reins of his horse and said, "No.
 No. You do not have the permission to go and duel with him."
 
 The cavalier from Granada removed his aventail as he approached close to the
-gate of the city. The guards lowered their heads in his respect. This was Moosa
+gate of the city. The guards lowered their heads in his respect. This was Musa
 Bin Abi Ghassan. The last sword of the Muslims of Granada.
 
 Abu Dawood stood in front of Ferdinand. In a state of extreme helplessness, he
@@ -473,7 +473,7 @@ Al-Hamra and instigated Abu Abdullah to revolt but my crimes are far from that.
 I am your father's killer. I am the one who wrote to him and invited him to
 Toledo. The first time when I came in the capacity of a guest, I was Ferdinand's
 spy and the attack by the enemy on your fort during the night was on my behest.
-I got Moosa arrested in Al-Hamra. I had convinced Abu Abdullah to become a
+I got Musa arrested in Al-Hamra. I had convinced Abu Abdullah to become a
 nation seller. In Granada, the Muslim spies from Andalus who have been sent to
 propagate against the jihad were trained by me. You have asked me, when will
 Angela and Rabia be punished and I have told you that they will be burned alive

@@ -6,7 +6,7 @@
 The Frontier Falcon entered Granada with a thousand troops. News of his recent
 victory had spread to every city of the Sultanate. Aspiring for a long time,
 the people of Granada finally got a chance to see him. After a long time, they
-took out a procession for a victor. Moosa and a few senior officers of the
+took out a procession for a victor. Musa and a few senior officers of the
 Granada army, who received him a station before Granada on behalf of the King,
 also accompanied him. The King of Granada, Abul Hassan, his Crown Prince, Abu
 Abdullah Mohammed and the King's brother Abdullah Al-Zeghel stood on the tower
@@ -16,7 +16,7 @@ after glorious victories in the north.
 
 People were showering flowers from rooftops. Badr bin Mughira was dressed in
 his usual white robe. But today he didn't have his face covered. He was
-flanked by Moosa on his right and Al-Zaghairi on his left. Another great
+flanked by Musa on his right and Al-Zaghairi on his left. Another great
 warrior, Naeem Ridwan, held the reins of his horse and they all were led by a
 mujahid holding the Frontier Falcon's flag bearing a crescent.
 
@@ -41,34 +41,34 @@ Abul Hassan said, "No. Now since the question of the honor of the royal
 household has been raised by Abu Abdullah, it is important to have it
 addressed. I will personally go out to receive Badr bin Mughira. Order all the
 nobles who have gathered in the court to come out and send a garland of
-flowers for me and let Moosa know that he should wait a little more with the
+flowers for me and let Musa know that he should wait a little more with the
 procession at the gate."
 
 The people stood around Badr bin Mughira in front of the gate of the fort,
-raising thundering slogans. Moosa moved forward on his horse clearing the way.
+raising thundering slogans. Musa moved forward on his horse clearing the way.
 However, before the procession could move forward the Administrator of the
-Royal Court came running out, reached close to Moosa and said, "It's the royal
+Royal Court came running out, reached close to Musa and said, "It's the royal
 order that the honorable guest should be stopped here for a while."
 
 After a while, Abul Hassan along with the nobles of the Sultanate appeared
 from the door and the people looked at him in amazement. Seeing Abul Hassan
-coming down the stairs, Moosa and Al-Zaghairi quickly climbed down their
+coming down the stairs, Musa and Al-Zaghairi quickly climbed down their
 horses. Naeem Ridwan, who was holding the reins of Badr bin Mughira's horse,
 turned around and said, "His Royal Highness himself is coming." Badr bin
 Mughira jumped off his horse.
 
 In the meantime, Abul Hassan had approached close to him. Instead of shaking
 his hand, he hugged him and put the garland of flowers around his neck. He
-then took the flag from the flag bearer and after kissing it, said, "Moosa!
+then took the flag from the flag bearer and after kissing it, said, "Musa!
 Give the good news to the people of Granada that from today the Frontier
 Falcon's flag shall flutter over our palace. Our flags have rotted. Badr bin
 Mughira has brought us a new flag. Our swords were rusted. Nature has given us
 someone who would give them a new shimmer. We are thankful that the honorable
 guest has obliged us with his presence."
 
-Moosa climbed the stairs to address the crowd. The people gestured at each
-other to maintain silence. They considered Moosa to be Granada's spokesman.
-When he raised his hand the people looked towards him dumbfounded. Moosa began
+Musa climbed the stairs to address the crowd. The people gestured at each
+other to maintain silence. They considered Musa to be Granada's spokesman.
+When he raised his hand the people looked towards him dumbfounded. Musa began
 the speech:
 
 "People of Granada! Today you have among you that great mujahid, who has
@@ -135,23 +135,23 @@ splendid buildings?'"
 only swords are made in our mint factory. And we have given him this reply
 with the confidence that our swords can defend our freedom."
 
-After Moosa's speech the people started shouting, saying that they wanted to
+After Musa's speech the people started shouting, saying that they wanted to
 hear something from the Frontier Falcon. Abut Hassan looked at Badr bin
 Mughira and said, "Please do say a few words. Never has such a large crowd
 gathered in front of my palace."
 
-In a state of confusion, Badr bin Mughira looked here and there but Moosa held
+In a state of confusion, Badr bin Mughira looked here and there but Musa held
 him by his hand and made him stand on the stairs.
 
 For Badr bin Mughira, addressing such a large audience was a big challenge.
 For a while he kept staring at the crowd in a state of confusion. Finally, he
 began his speech reluctantly:
 
-"Vibrant people of Granada! After the great speech of Moosa Bin Abi Ghassan, I
+"Vibrant people of Granada! After the great speech of Musa Bin Abi Ghassan, I
 believe there is no need for another one and maybe you too don't need any
 other ruckus to wake you up from your sleep after Israfeel has blown the horn.
 I strongly believe that if a people who are in a state of degeneration can
-produce a mujahid like Moosa, then, no power can wipe them out. Whomever you
+produce a mujahid like Musa, then, no power can wipe them out. Whomever you
 consider your leader, the important thing is to answer to his call with a deep
 conviction in your hearts. Do whatever he commands you to do. Remember! Even
 the best of physicians cannot help a patient who is bent on his fatality."
@@ -175,7 +175,7 @@ that one after the other our cities fell out of our hands."
 
 "Once again the enemies of Islam are uniting. Now their eyes are on Granada.
 God forbid, if we're not even able to defend Granada then, merely the name of
-Muslims will remain in Andalus. Abu Moosa has already told you all these
+Muslims will remain in Andalus. Abu Musa has already told you all these
 things. I just want to say one thing to you and that is that now instead of
 Alphonso, it is Ferdinand who wants to talk to us with swords and we have to
 prove that even today the Muslims know how to communicate in the language of
@@ -184,7 +184,7 @@ language of the sword becomes more appropriate than that of the pen and for
 you that time has arrived."
 
 After Badr bin Mughira's speech, when the crowd was cheering, Abul Hassan
-said, "I am desperate to talk to you. Abu Moosa will bring you to me after
+said, "I am desperate to talk to you. Abu Musa will bring you to me after
 this procession is over."
 
 Ten days after the arrival of the Frontier Falcon, the citizens of Cordova
@@ -215,7 +215,7 @@ eye on his son.
 Abul Hassan did not include any foot soldiers in the contingent of this
 mission and charging with amazing speed reached the Valley of Lakka.
 
-Moosa Bin Abi Ghassan was his deputy commander while the charge of the
+Musa Bin Abi Ghassan was his deputy commander while the charge of the
 storming units of the vanguard troops was given under Badr bin Mughira.
 
 After capturing a few border areas, Abul Hassan besieged Sakhra and when this
@@ -235,7 +235,7 @@ minor resistance.
 
 The number of injured was quite low in this battle and on the orders of Abul
 Hassan they were transferred to a spacious room of the governor's palace.
-During the afternoon, Abul Hassan, Moosa, Badr and a few other commanders
+During the afternoon, Abul Hassan, Musa, Badr and a few other commanders
 visited the injured. The physicians taking care of the injured stood
 respectfully with heads bowed down but an individual who was engrossed in
 tying a bandage around the wounds of a soldier's head and neck did not budge
@@ -287,11 +287,11 @@ worry. I know him. Bashir, how did you reach here?"
 The armor-clad soldier slid the veil off his aventail, got up and stood
 respectfully in front of Abul Hassan.
 
-Moosa said in amazement, "Bashir Bin Hassan! When did you arrive here?"
+Musa said in amazement, "Bashir Bin Hassan! When did you arrive here?"
 
 He replied, "I reached here today."
 
-Moosa said to Abul Hassan, "This is Bashir Bin Hassan. He takes care of our
+Musa said to Abul Hassan, "This is Bashir Bin Hassan. He takes care of our
 falcon's wings."
 
 Abul Hassan enthusiastically shook Bashir Bin Hassan's hands and said, "I have
@@ -326,7 +326,7 @@ Abul Hassan said, "We apologize for not taking that into account. Please
 continue. Have a look at other injured soldiers and do meet me when you are
 done."
 
-Abul Hassan, Badr bin Mughira and Moosa went away while Bashir Bin Hassan
+Abul Hassan, Badr bin Mughira and Musa went away while Bashir Bin Hassan
 continued tending to the needs of the wounded. Like the other cities of
 Andalus, his fame had also reached Granada.
 
@@ -432,5 +432,5 @@ He is very happy. On reaching Granada, Al-Zeghel has make him Prince Abu
 Abdullah's special companion. He has been given a house in the Al-Hamra
 Palace. I think he'll make the prince become his fan in no time."
 
-The direction of their conversation changed as Moosa approached. He informed
+The direction of their conversation changed as Musa approached. He informed
 them that Abul Hassan would like to see them.

@@ -343,7 +343,7 @@ would go every second or third day to give necessary instructions to his
 warriors and return. Although Abu Dawood had gained his trust a little after
 telling him a concocted story, he was not inclined to allow any stranger on
 his side of the border without a written recommendation from Al-Zeghel or
-Moosa. This is the reason he had called Bashir Bin Hassan here from the forest
+Musa. This is the reason he had called Bashir Bin Hassan here from the forest
 instead of taking Rabia to his residence for treatment.
 
 Apart from her father, who had married a Christian girl a year after the
@@ -413,7 +413,7 @@ when some of the things that Maria and Angela would say would become
 unbearable, then, she would be compelled to quarrel. These quarrels had more
 to do with emotions than logic and reason. Maria and Angela would try to
 impress her with Ferdinand's pomp and the magnificence of the rulers of Rome.
-She would reply by telling the legends of Tariq, Moosa, Abdul Rehman the Great
+She would reply by telling the legends of Tariq, Musa, Abdul Rehman the Great
 and Yusuf Bin Tashfeen.
 
 Maria and Angela would say that one of their priests had dreamt that God has

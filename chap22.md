@@ -561,24 +561,24 @@ coming generations won't bow their heads in shame after reading it. Our fate
 would not have a life of humiliation and disgrace."
 
 The captain said, "If nature intended our betterment then a glorious mujahid
-like Moosa would not have had to face defeat in Granada and after him the
+like Musa would not have had to face defeat in Granada and after him the
 remainder of the mujahideen wouldn't have been deprived of Badr bin Mughira's
 leadership."
 
-Bashir annoyingly said, "Who says that Moosa has been unsuccessful in his
-mission? The people of Granada's defeat was not Moosa's defeat. This was the
+Bashir annoyingly said, "Who says that Musa has been unsuccessful in his
+mission? The people of Granada's defeat was not Musa's defeat. This was the
 defeat of the traitors and the nation-sellers who gave priority to a life of
 slavery and humiliation compared to a death of dignity. This was Abu Abdullah's
 defeat. This was the defeat of those emirs and religious scholars who have
 accepted perpetual humiliation and disgrace for the sake of being alive for a
-few more days in this world. Moosa was a true believer. He lived a life of a
+few more days in this world. Musa was a true believer. He lived a life of a
 true believer and died a death of a true believer. If you think that nature
 doesn't require our betterment, even then you are wrong. Nature has showered us
 with gifts for centuries for the sake of a few people. We defeated the mightiest
 powers of the world. Isn't it a gift of nature that a handful of mujahideen in
 the Valley of the Falcons have been stopping the storm of savagery and barbarism
 for years? Isn't it a gift of nature that it gave another chance to a nation,
-whose social ethics and character had perished, leaders like Badr and Moosa so
+whose social ethics and character had perished, leaders like Badr and Musa so
 that it comes onto the straight path? If the nation betrays even such people,
 then why is nature to be blamed? Even today those people are present in the
 nation who don't want to be discouraged and become hopeless. These people are

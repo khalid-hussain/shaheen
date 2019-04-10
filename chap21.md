@@ -4,7 +4,7 @@
 The siege of Granada had entered into its seventh month. The condition of the
 city was deteriorating. The people were sick and tired of starvation. The elders
 of Granada were gathered in a spacious room of Al-Hamra. The Lion of Granada,
-Moosa Bin Abi Ghassan, was looking at Abu Abdullah and his courtiers with
+Musa Bin Abi Ghassan, was looking at Abu Abdullah and his courtiers with
 wrath-filled glances.
 
 Ferdinand's emissary of peace entered into the room. He came in front of the
@@ -30,7 +30,7 @@ benevolent. In any other scenario, the responsibility of an exemplary
 destruction of Granada will rest on King Abu Abdullah."
 
 The attendees of the court were silently looking at Abu Abdullah, Abul Qasim and
-Moosa. The emissary rolled up the letter and presented it to Abu Abdullah. Abu
+Musa. The emissary rolled up the letter and presented it to Abu Abdullah. Abu
 Abdullah looked at his right and left towards his Prime Minister and the
 Commander-in-Chief.
 
@@ -42,9 +42,9 @@ King. Two guards waiting at the door went along with him and ushered him towards
 the Royal Guesthouse.
 
 After opening and having a look at the letter, Abu Abdullah turned his attention
-towards Moosa and said in a gloomy tone, "Moosa! What is your opinion?"
+towards Musa and said in a gloomy tone, "Musa! What is your opinion?"
 
-Moosa stood up and after taking a look at the attendees of the court for a
+Musa stood up and after taking a look at the attendees of the court for a
 moment, said,
 
 "We were told that Ferdinand's emissary is coming with a message of peace but
@@ -68,21 +68,21 @@ Great Sultan! If you ask me the reply to Ferdinand's letter then send him a
 sword on behalf of the people of Granada. Writings of honorable agreements are
 not written with the pen, but with the tip of the sword."
 
-Moosa sat down. Silence prevailed in the court for a while. Abu Abdullah looked
+Musa sat down. Silence prevailed in the court for a while. Abu Abdullah looked
 at his Prime Minister and said, "Abul Qasim! Would you like to say something?"
 
 Abul Qasim stood up and replied:
 
-"Great Sultan! I am not Moosa Bin Abi Ghassan's opponent. I respect his feelings
+"Great Sultan! I am not Musa Bin Abi Ghassan's opponent. I respect his feelings
 but if he doubts my good intentions then I am ready to resign at this very
 moment. My crime is that I have opposed the idea of going out of the city in the
-open ground for a decisive battle. But Moosa Bin Abi Ghassan knows that my
+open ground for a decisive battle. But Musa Bin Abi Ghassan knows that my
 opposition was not because of cowardice. I had merely given the opinion that if
 the outcome of the battle was not in our favor then we would have to face dire
 consequences.
 
-Moosa knows the condition of the army better than me. The plight of the people
-is not hidden from anyone's eyes. Certainly Moosa will not blame me for the
+Musa knows the condition of the army better than me. The plight of the people
+is not hidden from anyone's eyes. Certainly Musa will not blame me for the
 other day when the people demonstrated in front of the Al-Hamra in favor of
 peace and that this was a result of some conspiracy by me and after that the
 commanders of army and the elders of the city who opposed the idea, in front of
@@ -90,7 +90,7 @@ the Sultan, of going for a decisive battle in the field were all taught by me
 and those people of the city who are rejoicing today at the arrival of
 Ferdinand's emissary are doing so on some covert instructions by me.
 
-Elders of Granada! If you agree with Moosa's idea that there is no other way for
+Elders of Granada! If you agree with Musa's idea that there is no other way for
 us but to fight till our last breath, then I am with you. The enemy will be
 informed about your decision."
 
@@ -113,7 +113,7 @@ all? We should not also forget that the prolongation of this war is increasing
 the suffering of those helpless brothers of ours who are at the mercy of the
 Christian majority and the Christians government in the rest of Spain."
 
-Moosa got up and said, "If today, instead of being besieged in Granada, had we
+Musa got up and said, "If today, instead of being besieged in Granada, had we
 been in front of the four walls of Castile, then, this wouldn't have been the
 condition of our brothers in Spain. Mountains of calamities broke on their heads
 when the Christians had realized our insensitivity."
@@ -123,7 +123,7 @@ indecisive war of ours with Ferdinand is not jihad. A major segment of our
 nation is being governed by the Christians and the result of this war will only
 aggravate the problems for us and our brothers."
 
-Biting his lips in rage, Moosa stood up. He said in a shivering voice:
+Biting his lips in rage, Musa stood up. He said in a shivering voice:
 
 "Our war is a war for the sake of humanity against tyranny and oppression. Our
 victory would be a victory for humanity and our defeat would be the defeat of
@@ -136,20 +136,20 @@ have nowhere to go. If Granada goes from our hands then the flame of Islam will
 extinguish from Andalus forever."
 
 After this, the people of the court took part in this discussion, turn by turn.
-This discussion ended at midnight. Apart from Moosa and a few of his companions,
+This discussion ended at midnight. Apart from Musa and a few of his companions,
 the decision of the rest was that as a reply to Ferdinand, Abul Qasim Abdulmalik
 should be sent to him and a discussion to take place on the conditions of the
 treaty that Abul Qasim brings back from Ferdinand. If these conditions are
 acceptable then it's good otherwise ponder upon the proposal of a decisive
 battle.
 
-Moosa was certain that the conditions of the treaty set by Ferdinand would be so
+Musa was certain that the conditions of the treaty set by Ferdinand would be so
 humiliating that the citizens of Granada would not accept them. Therefore, when
-Abul Qasim left, against Moosa's wishes, for negotiations with Ferdinand, he
+Abul Qasim left, against Musa's wishes, for negotiations with Ferdinand, he
 commanded his army to be ready for a decisive attack. He also sent instructions
 for Badr bin Mughira and his companions to be prepared. For three days, Abul
 Qasim Abdulmalik kept negotiating the conditions of the treaty with Ferdinand
-and meanwhile in the mosques of Granada, Moosa's spirit-elevating speeches had
+and meanwhile in the mosques of Granada, Musa's spirit-elevating speeches had
 infused a new life into the people of the city. Due to the fervor and enthusiasm
 of the people, the effect of the war opposition had been suppressed to a large
 extent.
@@ -195,13 +195,13 @@ royal court regarding these conditions would not be disclosed to the people of
 Granada.
 
 Most of the nobles and the scholars present in the court thought that
-Ferdinand's offer was extremely generous but Moosa was using all his power of
+Ferdinand's offer was extremely generous but Musa was using all his power of
 eloquence for the opposition of this agreement. The discussion took place for
 four days. The majority of the nobles had already expressed their opinions in
 favor of this agreement. Today was the last day of the discussion.
 
 The last roar of the Lion of Granada could be heard in Al-Hamra. The attendees
-of the court were looking at him spellbound. Moosa Bin Abi Ghassan was saying:
+of the court were looking at him spellbound. Musa Bin Abi Ghassan was saying:
 
 "People of Granada! On your withered faces, I am reading the verdict of the
 destiny of that nation that has ruled this country for eight hundred years. I
@@ -250,14 +250,14 @@ your emotions. There is no doubt about your bravery but you are ignoring the
 bitter realities. You know very well that no fortification can be captured by
 mere words."
 
-Moosa Bin Abi Ghassan thundered back and said, "Sit down. You are the one guilty
+Musa Bin Abi Ghassan thundered back and said, "Sit down. You are the one guilty
 of ignoring the bitter realities not me!"
 
-But as soon as he sat down, a religious scholar stood up and said, "Moosa!
+But as soon as he sat down, a religious scholar stood up and said, "Musa!
 Suicide is not permitted in any religion. We are helpless and powerless in front
 of God's will. No one can wipe what destiny has written."
 
-Moosa's face was glowing with rage. He said in a shivering voice:
+Musa's face was glowing with rage. He said in a shivering voice:
 
 "You consider martyrdom to be suicide compared to a life of humiliation and
 slavery. This is nothing new. When Tariq had burned his ships at the shores of
@@ -294,7 +294,7 @@ resources. In the time of crisis, you can leave Granada and go someplace else
 but don't create a situation for the people that they are left in the middle of
 nowhere."
 
-Moosa sat down. Silence prevailed over the court. For a while, the attendees
+Musa sat down. Silence prevailed over the court. For a while, the attendees
 kept looking here and there. Finally, Abul Qasim stood up and said:
 
 "Elders of the Nation! The verdict for the destiny of Granada lies in your hands
@@ -303,7 +303,7 @@ enemy, but, the choice to accept or reject the terms is yours. If you think we
 can continue the war in these circumstances then I will welcome your decision
 but if you have become disheartened then I will say that we should consider
 these terms of the treaty more than satisfactory. In a personal capacity, I
-would like to second Moosa's views but in the capacity of Prime Minister, I will
+would like to second Musa's views but in the capacity of Prime Minister, I will
 await your decision. All those chiefs and scholars gathered here at this moment
 have the right of representing the army and the people. All I know is that if
 you decide to continue the war then despite the discouraging circumstances all
@@ -311,7 +311,7 @@ the people will, once again, rise to the occasion but if you are in support of
 the treaty then expecting anything from the army and the people will be in vain.
 I pray to God that He guides you in making the decision."
 
-A Berber chief stood up and said, "Moosa Bin Abi Ghassan knows that we have
+A Berber chief stood up and said, "Musa Bin Abi Ghassan knows that we have
 supported him in war despite being in the most pessimistic of times but now the
 circumstances are such that drawing a veil over them would be in vain.
 Ultimately there would be two outcomes of the war. Total victory or total
@@ -341,17 +341,17 @@ the nation is that the terms of the treaty should be accepted. What is your
 command?"
 
 Abu Abdullah looked at the attendees of the court with extreme helplessness.
-Apart from Moosa, despair dripped from every face. Abu Abdullah said in a
+Apart from Musa, despair dripped from every face. Abu Abdullah said in a
 melancholy voice, "I had thought that these leaders of the nation would have
-changed their opinions after Moosa's speech but it seems that there is no remedy
+changed their opinions after Musa's speech but it seems that there is no remedy
 to this fire of destruction that I had scintillated with my own hands." Abu
 Abdullah wanted to say something more but his voice sank and his eyes became
 filled with tears.
 
-Abul Qasim looked at Moosa. Horror was dripping from his eyes. Abul Qasim said,
-"Moosa! Is there anything more you would like to say?"
+Abul Qasim looked at Musa. Horror was dripping from his eyes. Abul Qasim said,
+"Musa! Is there anything more you would like to say?"
 
-In reply to this, Moosa got up and after pausing for a second, said:
+In reply to this, Musa got up and after pausing for a second, said:
 
 "For the last time I would like to say something to you. After this you won't
 hear my voice. From today our paths will be different. I can support you for a
@@ -375,10 +375,10 @@ tears and the sky will hear your moaning. I won't witness all this. A death of
 liberty is easy for me while a life of slavery will be difficult for you. I will
 leave now and you won't see me after this."
 
-Taking quick steps, Moosa left. Abu Abdullah's wife and mother stood at the gate
-of Dar Al-Aswad. There were tears in their eyes. On seeing them, Moosa stood for
+Taking quick steps, Musa left. Abu Abdullah's wife and mother stood at the gate
+of Dar Al-Aswad. There were tears in their eyes. On seeing them, Musa stood for
 a second and then continued his stride with the same pace. After a while, a
-large crowd of people had gathered at the gate of his palace. Moosa mounted his
+large crowd of people had gathered at the gate of his palace. Musa mounted his
 beautiful horse and rode out of the palace. He was clad in iron from top to toe.
 The people moved aside after seeing him and without saying a word to anyone, he
 prompted his horse. After leaving the gates of the city his agile horse got lost
@@ -393,7 +393,7 @@ into the river.
  
 
 The secrets of Al-Hamra could not remain hidden from the eyes of the people of
-Granada for long. The city's youth, who considered Moosa their savior, became
+Granada for long. The city's youth, who considered Musa their savior, became
 against the nobles. Although there was such a group that existed in the army
 that was in support of the treaty, however, the majority was of those people who
 were not willing to accept a defeat without a war.
@@ -466,7 +466,7 @@ in their hearts for him. Instead of ruling over them with the help of the
 Christian army he immigrated to Morocco and got employed in the army of the
 Sultan.
 
-Moosa Bin Abi Ghassan's reservations proved to be right. The treaty which the
+Musa Bin Abi Ghassan's reservations proved to be right. The treaty which the
 people of Granada thought was a message of peace and tranquility was actually a
 plot of deception and they were trapped in it. The sword had scrapped the
 writings of the pen. The victor was changing the interpretation of the terms of

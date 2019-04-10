@@ -20,7 +20,7 @@ slogans of victory in the streets and markets. Abul Hassan looked towards the
 sky, then raised his hands and supplicated:
 
 "O Lord! Give strength to my weak hands. Grant me the determination of Tariq
-Bin Ziyad and the morale of Moosa Bin Naseer. Grant my people, once more, the
+Bin Ziyad and the morale of Musa Bin Naseer. Grant my people, once more, the
 fiery of those mujahideen whose horses drank water from the rivers of France
 on one side and the rivers of China from the other. Transform our disunity
 into unity. You can change this pile of sand to a cliff. My Lord! Don't
@@ -78,7 +78,7 @@ the bazaars of Granada. What is that thought that is disturbing the Crown
 Prince of Granada at this time?"
 
 Abu Abdullah said, "Is it also my teacher's order that I should raise slogans
-at the victory of Moosa, Al-Zaghairi and Badr bin Mughira? Aren't my
+at the victory of Musa, Al-Zaghairi and Badr bin Mughira? Aren't my
 stepbrothers enough who were walking in front of their horses in the
 procession like servants today? All this is happening because they know that I
 cannot do this kind of flattery and they want to prove to my father, once
@@ -260,8 +260,8 @@ of his troops. Alongwith this, he also got to know about the troop movement of
 the armies of Cordova and Seville. He divided his army into three groups. He
 gave the command of one section under the leadership of Al-Zeghel, ordering
 him to block the forces advancing from Seville. For the second army, he could
-not find a more befitting man than Moosa but on the advice of a few nobles he
-left Moosa with Abu Abdullah in Granada and called for Badr bin Mughira to
+not find a more befitting man than Musa but on the advice of a few nobles he
+left Musa with Abu Abdullah in Granada and called for Badr bin Mughira to
 lead it.
 
 Badr bin Mughira reached Granada with more than half of his troops and took
@@ -270,7 +270,7 @@ charge of the force that was advancing towards the border of Cordova.
 Abul Hassan kept the charge of the remainder of the army in his hand. Before
 leaving, he called Abu Abdullah and said, "Son! With the absence of Al-Zeghel
 and I, a great responsibility rests with you. According to your age, you are
-old enough to take care of the Sultanate's affairs. However, I'm leaving Moosa
+old enough to take care of the Sultanate's affairs. However, I'm leaving Musa
 behind for your assistance. In my eyes he is no less that Al-Zeghel. Don't
 take any step without his advice. If something were to happen to me then
 remember that my soul won't rest until you take back the lost Sultanate of
@@ -280,15 +280,15 @@ Abu Abdullah said, "It is my misfortune that even at this point in time I do
 not have the privilege of being a soldier in your army. However, I will try my
 utmost to prove myself worthy to fulfill the responsibility that you have
 assigned to me but I feel that you would need an experienced general like
-Moosa on every front. It is vital that he stayed with you. You may leave
+Musa on every front. It is vital that he stayed with you. You may leave
 anybody else for my assistance."
 
-Abul Hassan replied, "You are right but another reason to leave Moosa here is
+Abul Hassan replied, "You are right but another reason to leave Musa here is
 that he will be able to recruit new soldiers for reinforcement."
 
 After leaving Granada Abul Hassan encamped near bordercity, waiting for
 Ferdinand's armies. With him were two brilliant generals of Granada's army,
-Al-Zaghairi and Naeem Ridwan, to take Moosa's place.
+Al-Zaghairi and Naeem Ridwan, to take Musa's place.
 
 Two weeks passed and Abul Hassan got to know that Ferdinand's army have halted
 at a place across the border. Similar news was received from Al-Zeghel and
@@ -366,14 +366,14 @@ with his horse and said in a commanding voice, "This is no time to talk.
 Proceed to Loja immediately."
 
 Amazed after recognizing the voice of the masked man, Al-Zaghairi said, "Only
-Moosa Bin Abi Ghassan can talk to me like that and no one else."
+Musa Bin Abi Ghassan can talk to me like that and no one else."
 
 The masked man said, "But no one should know that I came here. The Sultan
 would be very upset. Don't mention anything about me to him. Leaving Granada
 has its own dangers but Abu Abdullah thinks that I'm at the military
 headquarters."
 
-Saying this Moosa signaled his comrades, prompted his horse and took-off. The
+Saying this Musa signaled his comrades, prompted his horse and took-off. The
 soldiers saw them disappear in the clouds of dust just as they had appeared.
 
 When Badr bin Mughira received the news that the rest of Granada's army was
@@ -450,7 +450,7 @@ sides entered the field and competed with each other, displaying their skills
 and then, the battle began. Until the evening there was no final outcome. Both
 sides had more dead and wounded than the previous day. The third day was
 crucial for both armies. But Abul Hassan's concern was greater than his
-enemy's. Moosa had already sent a reinforcement of two thousand troops from
+enemy's. Musa had already sent a reinforcement of two thousand troops from
 Granada but in the past two days, five thousand of his troops had either been
 wounded or killed. According to an estimate by Abul Hassan's officers, the
 number of soldiers killed and injured was not less than twenty thousand. But
