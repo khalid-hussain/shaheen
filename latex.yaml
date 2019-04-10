@@ -1,0 +1,11 @@
+---
+title: Shaheen
+author: Naseem Hijazi
+documentclass: memoir
+classoption:
+  - oneside
+  - ebook
+toc: true
+fontfamily: sourcesanspro
+fontfamilyoptions: default
+---
