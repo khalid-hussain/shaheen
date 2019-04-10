@@ -2,6 +2,7 @@ default: concatenate latex
 
 concatenate:
 	cat metadata.yaml \
+			_frontmatter.md \
 	    chap1.md \
       chap2.md \
       chap3.md \
