@@ -277,7 +277,7 @@ is the king of Andalus's brother, Al-Zeghel and this is Musa. They have brought
 us good news. Soon they are going to announce war against Castille.
 
 Bashir jumped off his horse and shook hands with them to which Badr said, "This
-is Bashir Bin Hassan. Surely, you must have heard of him. There isn't a better
+is Bashir bin Hassan. Surely, you must have heard of him. There isn't a better
 surgeon in Andalus than him. He left his luxurious palace of Cordova and
 preferred to live in this forest with me."
 

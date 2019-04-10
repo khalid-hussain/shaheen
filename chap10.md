@@ -4,7 +4,7 @@
 Badr bin Mughira had encamped at a distance of twenty miles from Granada. One
 evening an officer of his army informed him that a Berber had come with some
 important message. Badr bin Mughira called him inside his tent immediately.
-Mansour Bin Ahmed was sitting with Badr bin Mughira.
+Mansour bin Ahmed was sitting with Badr bin Mughira.
 
 The Berber entered the tent, shook hands with both of them, one after the
 other, and while settling down on a chair in front of them said, "I have come
@@ -15,7 +15,7 @@ from Granada."
 After a little hesitation the Berber chief said, "I would like to say
 something to you in private."
 
-Badr bin Mughira looked towards Bashir Bin Hassan, who he got up and left the tent.
+Badr bin Mughira looked towards Bashir bin Hassan, who he got up and left the tent.
 
 The newcomer pulled out a letter from his pocket, stood up and while
 forwarding it to Badr bin Mughira said, "I have been sent by Abu Dawood. He

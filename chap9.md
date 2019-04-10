@@ -3,7 +3,7 @@
 
 # Father and Son
 
-In the battle of Loja where mujahids like Naeem Bin Ridwan were writing the
+In the battle of Loja where mujahids like Naeem bin Ridwan were writing the
 fate of the Muslims of Andalus with the ink of their blood, another fate was
 being written in the Royal Court of Granada.
 
@@ -326,7 +326,7 @@ metal. This victory has opened the highway to other successes and if we don't
 despair then I assure you that that day is not far when our flag would be
 hoisted, once again, over the parliaments of Cordova and Seville."
 
-"You must be knowing that the first mujahid of Islam to this country, Tariq Bin
+"You must be knowing that the first mujahid of Islam to this country, Tariq bin
 Ziyad, came with a group of a handful of men. The orders given to him by his
 general were only to survey the situation of the country and return. But as
 soon as he set foot on the shores of Hispania, this mujahid changed his
@@ -411,7 +411,7 @@ how important this is and also remind myself that people who spread rumors
 during wartime are dealt with severely."
 
 The newcomer said, "Had you looked carefully, you would have recognized me. I
-am the son of the Palace Warden of Al-Hamra. I am a student of Habeera Bin
+am the son of the Palace Warden of Al-Hamra. I am a student of Habeera bin
 Saeed. For a few days I had been propagating jihad with Musa...
 
 A lot of the men here in the army recognize me, but if the terrible news that
@@ -531,21 +531,21 @@ Abul Hassan's lips were moving but his voice was lost. Sulaiman whispered,
 "Call in the physician. The Sultan is not well."
 
 Al-Zeghel bowed and looked at his brother and quickly went out and said to the
-guard, "Call Bashir Bin Hassan immediately. He must be taking care of the
+guard, "Call Bashir bin Hassan immediately. He must be taking care of the
 wounded. Tell him that the Sultan is not well. But say this in private. Not in
 front of anyone."
 
-After a while Bashir Bin Hassan entered the tent. After looking at the
+After a while Bashir bin Hassan entered the tent. After looking at the
 Sultan's condition he said to Al-Zeghel, "He has had a paralysis attack but
 it's not a severe one. God willing, he'll soon be fine. It seems that he has
 received a big shock."
 
 After a while Al-Zeghel said to Sulaiman, "Go and take some rest but don't
-reveal this matter to anyone." Then he turned his attention towards Bashir Bin
+reveal this matter to anyone." Then he turned his attention towards Bashir bin
 Hassan and said, "If my presence is not required here, then, I would like to
 be excused for a while."
 
-Bashir Bin Hassan said, "The Sultan's glances are frozen on you. I think your
+Bashir bin Hassan said, "The Sultan's glances are frozen on you. I think your
 absence from here for a while would be better for him. His attention could be
 diverted to something else."
 
@@ -566,7 +566,7 @@ who had penned ballads praising the mujhahideen of Loja were now writing
 elegies of Abu Abdullah's treachery and betrayal. After a brief smile the star
 of fate of Andalus became oblivious into the clouds of misfortune.
 
-The next day, with Bashir Bin Hassan's messiahship, Abul Hassan regained his
+The next day, with Bashir bin Hassan's messiahship, Abul Hassan regained his
 lost voice. His first words were, "O my son! What have you done? The throne
 that you tried to snatch was actually yours but your desire to become king has
 destroyed the future of the Muslims of Andalus. I pray to God what you have
@@ -664,7 +664,7 @@ such events."
 
 "Don't drag those beings in the line of great men whose son is Abdullah. Go and
 leave me in isolation for I have nothing to offer but tears." Saying this, the
-Sultan turned his face the other way. Bashir Bin Hassan tiptoed into the room
+Sultan turned his face the other way. Bashir bin Hassan tiptoed into the room
 and whispered, "The Sultan's condition is not good. Your talk would only
 aggravate his physical and spiritual condition. The only remedy for him is to
 bring Abdullah onto the right path."
@@ -687,7 +687,7 @@ After this meeting, Al-Zeghel, Badr bin Mughira, Al-Zaghairi and other army
 officials decided, in a council, to restructure the army from scratch.
 
 Al-Zeghel sent a delegation to specific chiefs of the entire Sultanate. Badr
-Bin Mughira's fighters grouped into small bands and began propagating jihad.
+bin Mughira's fighters grouped into small bands and began propagating jihad.
 
 Badr bin Mughira personally left Malaga with five hundred of his fighters and
 reached the suburbs of Granada where he started the mission of mustering

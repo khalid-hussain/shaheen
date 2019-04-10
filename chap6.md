@@ -3,7 +3,7 @@
 
 # Realization of Rabia's Dream
 
-Badr bin Mughira and Bashir Bin Hassan spent most part of Friday in Abu
+Badr bin Mughira and Bashir bin Hassan spent most part of Friday in Abu
 Dawood's company. By talking to them Abu Dawood was satisfied that they would
 be spending the night in this fort but what surprised him was the fact that
 most of the soldiers in the fort had suddenly disappeared.
@@ -45,7 +45,7 @@ headed straight this way."
 "They are about 8 to 10 miles away from here. They said that they would be
 having dinner with you."
 
-Badr bin Mughira turned his attention to Bashir Bin Hassan and said, "Make
+Badr bin Mughira turned his attention to Bashir bin Hassan and said, "Make
 preparations for their boarding and lodging. I will go to receive them."
 
 After a while when Badr bin Mughira was galloping his horse out of the fort
@@ -73,7 +73,7 @@ would be very far from Granada?"
 
 Rabia's face lit up with red and white waves of bashfulness. She could not
 give any reply to Angela. Angela said again,"Rabia, we both are in the same
-boat but when I take Bashir Bin Hassan's name you scold me and your condition
+boat but when I take Bashir bin Hassan's name you scold me and your condition
 is such that by the mere imagination of departure from this place your face
 dries up. Tell me honestly are you not fond of the Frontier Falcon?"
 
@@ -81,7 +81,7 @@ dries up. Tell me honestly are you not fond of the Frontier Falcon?"
 different. Badr bin Mughira is the full moon of Andalus' sky and I am merely
 one of those thousands of spectators who despite being in awe with its
 brightness cannot even bring the idea in our hearts of bringing it down from
-the sky for the adornment of our huts. Bashir Bin Hassan is also a shining
+the sky for the adornment of our huts. Bashir bin Hassan is also a shining
 star of Andalus' sky and if your interest was limited to seeing him, then I
 certainly would not have objected. But Angela! You want to tear this star of
 the sky and put it in your lap while closing your eyes to the massive gulf
@@ -110,13 +110,13 @@ would not be a problem for me."
 
 Rabia said, "Angela, assume that today itself a formal declaration of war
 takes place between the kingdoms of Granada and Castile, then don't you think
-all the doors would be closed between you and Bashir Bin Hassan?"
+all the doors would be closed between you and Bashir bin Hassan?"
 
 "Maybe for a brief period all the doors between us might close but the certain
 outcome of the war would be that the Christians would capture all of Andalus
 and the remaining walls of hatred between us would also collapse."
 
-Rabia said, "Angela, do you think that a warrior like Bashir Bin Hassan would
+Rabia said, "Angela, do you think that a warrior like Bashir bin Hassan would
 live to romance with you after the defeat and destruction of his people?"
 
 Grief spread over Angela's face. After being silent for a while she said,
@@ -158,8 +158,8 @@ also accompanied them.
 
 Because the Moazzin was giving the Aathaan in the fort at the time they
 entered, these people entered the mosque as soon as they dismounted their
-horses. Bashir Bin Hassan and Abu Dawood welcomed them at the door of the
-mosque. After enthusiastically greeting Bashir Bin Hassan, Al-Zeghel looked
+horses. Bashir bin Hassan and Abu Dawood welcomed them at the door of the
+mosque. After enthusiastically greeting Bashir bin Hassan, Al-Zeghel looked
 towards Abu Dawood. Badr bin Mughira said, "This is Abu Dawood. I had talked
 about him to you along the way."
 
@@ -174,8 +174,8 @@ in the company of the Frontier Falcon has been the best incident that ever
 happened to me. And that great man from Granada, whom I would have considered
 my great fortune had I even seen him from a far distance, today, is in front
 of me. If you don't consider it disrespectful, I would like to kiss this holy
-hand that has had the honor of holding the swords of Musa Bin Naseer and
-Tariq Bin Ziyad after centuries."
+hand that has had the honor of holding the swords of Musa bin Naseer and
+Tariq bin Ziyad after centuries."
 
 Al-Zeghel was the kind of practical individual who felt very uncomfortable
 with flattery. But Abu Dawood's style and tone of articulation touched him. He
@@ -260,7 +260,7 @@ A satisfied Al-Zeghel replied, "So, you were expecting this attack?"
 Abu Dawood was stunned by this question and looked towards Badr. Badr replied,
 "Nature had given me a sign and thank God we didn't take this as an illusion."
 
-Bashir Bin Hassan insisted on coming along, but Badr stopped him. He said,
+Bashir bin Hassan insisted on coming along, but Badr stopped him. He said,
 "The only reason my soldiers can stand in the raining arrows is because you
 can treat the injured. Stay here and prepare first aid for the injured."
 
@@ -326,7 +326,7 @@ Please hurry up. Angela is bleeding."
 
 Abu Dawood got up and went out running.
 
-After a while Abu Dawood entered the room with Badr bin Mughira and Bashir Bin
+After a while Abu Dawood entered the room with Badr bin Mughira and Bashir bin
 Hassan. Bashir took a cursory glance at Angela and Maria, then, carried each
 one of them to their beds, one after the other. In the meantime, a servant
 came carrying his bag of medicines. Bashir took out a bottle after opening the
@@ -339,22 +339,22 @@ eyes. After carefully examining her wound, he extended his hand towards the
 arrow. Angela screamed after grabbing his hand with both her hands and said,
 "No! No!"
 
-Bashir Bin Hassan said, "Look! The more we delay removing the arrow, the more
+Bashir bin Hassan said, "Look! The more we delay removing the arrow, the more
 painful it will get. Don't be scared. Don't hold my hand or else I will have
 to give you some medicine to make you unconscious."
 
-Bashir Bin Hassan signaled to his servant and Badr bin Mughira. Angela yelled
+Bashir bin Hassan signaled to his servant and Badr bin Mughira. Angela yelled
 and said, "No. No. Don't hold my hands and feet. I won't do anything."
 
 Bashir said, "I initially thought that you were a brave girl. Just close your
 eyes for a few moments...Don't worry."
 
 But Angela kept looking at him with glances filled with compliancy, love and
-idolization. This time when Bashir Bin Hassan stretched his hand towards the
+idolization. This time when Bashir bin Hassan stretched his hand towards the
 arrow, she did not display any resistance. She constricted her lips and after
 a slight shiver, her hand subconsciously moved towards the wound but with
 merely a small jerk of Bashir's hand, the arrow came out of the wound. Bashir
-Bin Hassan took a sigh of relief and said, "The wound is not that deep.
+bin Hassan took a sigh of relief and said, "The wound is not that deep.
 God-willing, you will be good in no time."
 
 During this time, Maria had gained consciousness. For a moment she opened her
@@ -365,7 +365,7 @@ Partly distraught, she was saying this while holding and shaking Bashir's arm.
 Bashir said, "Look! Please let me dress the wound. This way you are only
 aggravating her pain."
 
-Leaving Bashir Bin Hassan, she moved her attention towards Badr bin Mughira,
+Leaving Bashir bin Hassan, she moved her attention towards Badr bin Mughira,
 "For God's sake, save my daughter's life."
 
 Abu Dawood stepped forward, grabbed her by the arm and while forcing her onto
@@ -395,7 +395,7 @@ Abu Dawood's entire Machiavellian skills had amassed in his eyes. Maria would
 often be subdued by that typical frightening sparkle in Abu Dawood's eyes. She
 was silent but this was not an ordinary incident. Her shocked eyes were saying
 that this matter has not come to an end. I'm only waiting for the ground to
-clear. With the amount of engrossment Bashir Bin Hassan was treating Angela,
+clear. With the amount of engrossment Bashir bin Hassan was treating Angela,
 Abu Dawood was looking at his wife with far more gravity.
 
 In the midst of all of this, Badr bin Mughira looked at Rabia a few times. She
@@ -450,10 +450,10 @@ Badr had left but she felt that he was still there staring at her and not only
 he but everything in the room was staring at her. She got up with a shrill and
 shiver in her body, came and stood by Angela's bed.
 
-When Bashir Bin Hassan poured out the medicine in a cup, she said, "Here...I
+When Bashir bin Hassan poured out the medicine in a cup, she said, "Here...I
 will give it to her."
 
-As Bashir Bin Hassan and his servant were leaving the room, Abu Dawood said,"
+As Bashir bin Hassan and his servant were leaving the room, Abu Dawood said,"
 Wait! I am also coming along with you."
 
 Bashir said, "Please take rest."
@@ -485,7 +485,7 @@ perfectly alright."
 Abu Dawood took a sigh of relief and said, "Rabia dear, please lock both the
 rooms from the inside."
 
-Bashir Bin Hassan said, "There is no need to lock the door. There are enough
+Bashir bin Hassan said, "There is no need to lock the door. There are enough
 soldiers on guard in the verandah. I will instruct them just in case you need
 anything. But do close the windows and rest assured that the attackers will
 not reach near the fort. They have already been stopped far from here."
@@ -594,7 +594,7 @@ He was saying that 'Thank God that you will have to stay here a few more days.'
 Al-Zeghel, Musa and Al-Zeghairi were amazed at Badr bin Mughira's
 preparedness after seeing the map of the battlefield in the light of the
 morning. Very few of the attackers were able to escape with their lives. Badr
-Bin Mughira's archers had encircled the attackers in the valleys and ditches.
+bin Mughira's archers had encircled the attackers in the valleys and ditches.
 When the Christian attackers would muster courage and try to escape a volley
 of arrows from one valley and enter another, they would take a sigh of relief
 for a while only to find a greater number of arrows raining on them. At dawn,
@@ -683,7 +683,7 @@ person."
 
 Abu Dawood reached Badr bin Mughira before the soldiers and narrated the tale
 of his servant's execution in a manner that only but impressed him. However,
-when Bashir Bin Hassan got to know about the incident he appeared perplexed
+when Bashir bin Hassan got to know about the incident he appeared perplexed
 for a while. However, Abu Dawood opened the topic with him and cleared all his
 doubts.
 
@@ -731,7 +731,7 @@ On reaching his residence, Badr bin Mughira announced that one-fifth of the
 war booty would be contributed to the treasury of Granada. Later, he organized
 a fresh group of 500 horsemen under the command of a youth to march towards
 the border fort. He ordered them to drive the prisoners across the border and
-sent a special envoy to Bashir Bin Hassan with a message saying, "Those
+sent a special envoy to Bashir bin Hassan with a message saying, "Those
 injured enemies incapable of walking should be given horses and escorted to
 the other side of the border. And those who are severely injured should be
 given treatment. I shall remain here for a few days."
@@ -815,9 +815,9 @@ ten such people who can take my position."
 
 Al-Zeghel said, "In your opinion who is the best among them?"
 
-"My deputy Mansoor Bin Ahmed."
+"My deputy Mansoor bin Ahmed."
 
-"Isn't Mansoor Bin Ahmed that young man who was with you riding a dark horse?"
+"Isn't Mansoor bin Ahmed that young man who was with you riding a dark horse?"
 
 "No, he's not here at the moment. He's gone to Cordova."
 
@@ -831,7 +831,7 @@ Al-Zeghel said, "In your opinion who is the best among them?"
 
 "And how did he reach here from Seville?"
 
-"Just like the way the rest of the soldiers got here. Bashir Bin Hassan had
+"Just like the way the rest of the soldiers got here. Bashir bin Hassan had
 brought him here."
 
 The next day Al-Zeghel and his comrades left after taking a commitment from

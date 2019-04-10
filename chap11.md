@@ -326,7 +326,7 @@ something, I'm willing to act as a messenger."
 
 For a moment, ever drop of blood in her veins gathered up onto her cheeks.
 After entering this cell, her biggest concern was to say something about
-Bashir Bin Hassan. She had no hope that he would be a point of discussion. And
+Bashir bin Hassan. She had no hope that he would be a point of discussion. And
 she also knew she would be at a loss of words even if he was mentioned. But it
 was as if Badr bin Mughira had opened the gates of heaven for her. She said,
 "He is my benefactor...Please present him this handkerchief on my behalf."
@@ -423,7 +423,7 @@ Badr bin Mughira sat on a rock on the other side of the river to catch his
 breath.
 
 The clouds had cleared in the sky and the stars were shining bright. As Badr
-Bin Mughira intended to get up, he heard the sound of some footsteps. He
+bin Mughira intended to get up, he heard the sound of some footsteps. He
 quickly got up, tiptoed and stood behind a tree. Moments later, in the
 darkness, he saw two men walking along the banks of the river. He cautiously
 followed them from behind the trees.
@@ -442,11 +442,11 @@ should remain standing at this place."
 Badr bin Mughira called out, "Mansoor!"
 
 Both of them stopped, turned around, ran towards him and embraced him. The
-second person was Bashir Bin Hassan.
+second person was Bashir bin Hassan.
 
 Fed up with the bombardment of queries by his friends, Badr bin Mughira said,
 "Come on. Let's get out of here." While walking, Badr bin Mughira put his hand
-on Bashir Bin Hassan's shoulder, said something in his ear and simultaneously
+on Bashir bin Hassan's shoulder, said something in his ear and simultaneously
 placed a wet handkerchief in his hand.
 
 Mansoor turned around, looked towards them and said, "Looks like you have not
@@ -454,7 +454,7 @@ come back on your own wishes."
 
 Badr bin Mughira replied, "You are right in your assessment."
 
-Bashir Bin Hassan said, "I think we're out of the danger zone. Let's have your
+Bashir bin Hassan said, "I think we're out of the danger zone. Let's have your
 story now."
 
 Badr bin Mughira gave a brief account of his story while walking. After
@@ -462,7 +462,7 @@ walking for about a mile, the three men passed through a dense garden and
 entered a dilapidated house. Here, five more of their comrades were guarding
 the horses.
 
-After all of them got on their horses, Bashir Bin Hassan inquired, "Where do
+After all of them got on their horses, Bashir bin Hassan inquired, "Where do
 we intend to go now?"
 
 Badr bin Mughira said, "I will go my way after a short distance. I will take

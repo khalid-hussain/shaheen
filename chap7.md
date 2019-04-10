@@ -147,7 +147,7 @@ For Badr bin Mughira, addressing such a large audience was a big challenge.
 For a while he kept staring at the crowd in a state of confusion. Finally, he
 began his speech reluctantly:
 
-"Vibrant people of Granada! After the great speech of Musa Bin Abi Ghassan, I
+"Vibrant people of Granada! After the great speech of Musa bin Abi Ghassan, I
 believe there is no need for another one and maybe you too don't need any
 other ruckus to wake you up from your sleep after Israfeel has blown the horn.
 I strongly believe that if a people who are in a state of degeneration can
@@ -215,7 +215,7 @@ eye on his son.
 Abul Hassan did not include any foot soldiers in the contingent of this
 mission and charging with amazing speed reached the Valley of Lakka.
 
-Musa Bin Abi Ghassan was his deputy commander while the charge of the
+Musa bin Abi Ghassan was his deputy commander while the charge of the
 storming units of the vanguard troops was given under Badr bin Mughira.
 
 After capturing a few border areas, Abul Hassan besieged Sakhra and when this
@@ -287,36 +287,36 @@ worry. I know him. Bashir, how did you reach here?"
 The armor-clad soldier slid the veil off his aventail, got up and stood
 respectfully in front of Abul Hassan.
 
-Musa said in amazement, "Bashir Bin Hassan! When did you arrive here?"
+Musa said in amazement, "Bashir bin Hassan! When did you arrive here?"
 
 He replied, "I reached here today."
 
-Musa said to Abul Hassan, "This is Bashir Bin Hassan. He takes care of our
+Musa said to Abul Hassan, "This is Bashir bin Hassan. He takes care of our
 falcon's wings."
 
-Abul Hassan enthusiastically shook Bashir Bin Hassan's hands and said, "I have
+Abul Hassan enthusiastically shook Bashir bin Hassan's hands and said, "I have
 heard a lot of praises about you."
 
-Bashir Bin Hassan kissed Abul Hassan's hand and said, "Please forgive me if I
+Bashir bin Hassan kissed Abul Hassan's hand and said, "Please forgive me if I
 had shown disrespect. The soldier's condition was quite alarming."
 
 The Commander of the Medical Corps stood in a state of worry, guilt and
-helplessness. Bashir Bin Hassan said to him, "I am guilty of unnecessarily
+helplessness. Bashir bin Hassan said to him, "I am guilty of unnecessarily
 interfering but this person lay unconscious in the market and the soldiers
 left him thinking he was dead. I saw signs of life in him and brought him
 here. Since you were extremely busy you could not give him any attention."
 
 The Commander of the Medical Corps stretched out his hand for a handshake and
-said, "It's an honor even to admit my inferiority in front of Bashir Bin
+said, "It's an honor even to admit my inferiority in front of Bashir bin
 Hassan. In my view, when you got him here, his condition was hopeless. He was
 more in need of a miracle performer than a physician and in Andalus miracles
-are only associated with the name of Bashir Bin Hassan. We have a few more
+are only associated with the name of Bashir bin Hassan. We have a few more
 injured who are in need of your attention."
 
 Another young surgeon came forward and said, "I had seen you in Cordova but
 because of the aventail I could not recognize you today."
 
-Bashir Bin Hassan said, "I was afraid that without the aventail it would make
+Bashir bin Hassan said, "I was afraid that without the aventail it would make
 it more difficult to know me. Apart from this, there are a few of our men
 among the injured. I was afraid they would have screamed my name and you would
 have left the wounded and gathered around me and I would not have given proper
@@ -326,7 +326,7 @@ Abul Hassan said, "We apologize for not taking that into account. Please
 continue. Have a look at other injured soldiers and do meet me when you are
 done."
 
-Abul Hassan, Badr bin Mughira and Musa went away while Bashir Bin Hassan
+Abul Hassan, Badr bin Mughira and Musa went away while Bashir bin Hassan
 continued tending to the needs of the wounded. Like the other cities of
 Andalus, his fame had also reached Granada.
 
@@ -335,15 +335,15 @@ his hand and in carrying out his orders. Another reason that they were
 impressed with him was because he was the Frontier Falcon's comrade.
 
 The Commander of the Medical Corps still felt guilty about his behavior.
-Finally, he said to Bashir Bin Hassan, "So far I have still not been able to
+Finally, he said to Bashir bin Hassan, "So far I have still not been able to
 find the right words to apologize to you with. I'm afraid you might have
 formed a negative opinion about me."
 
-Bashir Bin Hassan replied, "Don't worry. Had I been in your position, maybe, I
+Bashir bin Hassan replied, "Don't worry. Had I been in your position, maybe, I
 would have dealt more harshly with a stranger."
 
-After a while the soldier whom Bashir Bin Hassan had given treatment initially
-started to groan in a state of being subconscious. Bashir Bin Hassan took out
+After a while the soldier whom Bashir bin Hassan had given treatment initially
+started to groan in a state of being subconscious. Bashir bin Hassan took out
 a medicine from his bag and while pouring it out in a cup, said to a
 physician, "He will be conscious in a while. Let him have this as soon as he
 opens his eyes. He'll go back to sleep as soon as he drinks the medicine. In
@@ -351,12 +351,12 @@ the evening, I will come and have a look at him myself. In the meantime, make
 sure that no one wakes him or tries to talk to him."
 
 In the afternoon when Badr bin Mughira got to speak to Bashir in private, he
-asked his friend of his unexpected arrival. Bashir Bin Hassan replied, "It was
+asked his friend of his unexpected arrival. Bashir bin Hassan replied, "It was
 my greatest wish to witness the departure of Abul Hassan's army with my own
 eyes but I got this news only when the army had departed from Granada. But
 then I thought that I would definitely catchup with it during the battle. Abu
 Dawood was also quite persistent to take me along with him to Granada. On my
-request and Abu Dawood's recommendation, Mansour Bin Ahmed granted me
+request and Abu Dawood's recommendation, Mansour bin Ahmed granted me
 permission. On reaching Granada I came to know that you had besieged Sakhra. I
 charged away and reached here this morning only to learn that the city has
 been captured."
@@ -370,7 +370,7 @@ all this running around not for me?"
 "I don't think an individual's safety is that big a purpose that one should be
 proud of."
 
-Bashir Bin Hassan looked at his friend in reverence and said, "Badr! For me
+Bashir bin Hassan looked at his friend in reverence and said, "Badr! For me
 you're not an individual but a nation. And if I were to use a physician's
 language, I would say that you're a throbbing heart in Hispania's unhealthy
 body."
@@ -392,7 +392,7 @@ pacify on seeing you and the river..."
 
 Badr said, "How silly of them."
 
-Bashir Bin Hassan said while suppressing his laughter, "No, not all of them
+Bashir bin Hassan said while suppressing his laughter, "No, not all of them
 were silly. There was one who said something sensible too."
 
 "And what was that?"

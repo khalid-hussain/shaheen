@@ -48,7 +48,7 @@ yourself for so long? Is this a dream?"
 
 After being separated from Bashir's grip, Musa turned his attention towards
 the other men. A man clad in black extended his hand towards him. While
-shaking his hand, Musa looked at Bashir and Bashir said, "This is Mansoor Bin
+shaking his hand, Musa looked at Bashir and Bashir said, "This is Mansoor bin
 Ahmed."
 
 After shaking hands with Mansoor, his glance fell upon Abu Mohsin. Abu Mohsin
@@ -72,7 +72,7 @@ the news as to who our guest was."
 After sitting at the food-spread, that scene came in front of Musa's eyes
 when he first entered into the valley of the falcons with Al-Zeghel. He was
 imagining that feast in the forest whose host was Badr bin Mughira. Today when
-Mansoor Bin Ahmed assisted him in washing his hands, he suddenly felt like a
+Mansoor bin Ahmed assisted him in washing his hands, he suddenly felt like a
 stranger. Despite Bashir's rapport and Mansoor's sincerity, he felt a sort of
 loneliness in the gathering. He tried to bring Badr bin Mughira's topic but he
 could not utter the words. The hosts were waiting for their guest to extend
@@ -460,7 +460,7 @@ attacked with the slogans of "Allahu Akbar", they started retreating towards
 the right. The troops under the Abu Abdullah that were retreating saw this
 change in situations and re-launched an attack. Now Ferdinand's entire army
 were pushed to one side of the city. On their right and left flanks were Badr
-Bin Mughira and Mansoor Bin Hassan's horsemen. In the rear were Musa's
+bin Mughira and Mansoor bin Hassan's horsemen. In the rear were Musa's
 fighters while the remainder of the army were in front fighting under the
 leadership of Abu Abdullah and Abu Mohsin. On the fourth side of the city,
 next to which the river flowed, was peaceful.
@@ -528,7 +528,7 @@ Ferdinand gave the order to blow the trumpet for a retreat and the remainder
 of his troops left the tents and ran. Musa ordered his infantry to guard the
 provisions while his cavalry was ordered to continue the pursuit of the enemy.
 
-Badr bin Mughira and Mansoor Bin Ahmed had surrounded the enemy from the right
+Badr bin Mughira and Mansoor bin Ahmed had surrounded the enemy from the right
 and left and the cavalry of Granada was behind them. The only way left open
 for Ferdinand's troops was towards the front.
 
@@ -567,7 +567,7 @@ and retreated. In the meantime, the pursuers from the right and left flanks
 had caught up with them. Only the rear was open to them. When they turned
 around and ran a short distance they came in the range of Musa's archers.
 After passing from the range of the archers, they were to face a wall of
-lancers. Mansoor Bin Ahmed had left the right flank and joined up with the
+lancers. Mansoor bin Ahmed had left the right flank and joined up with the
 cavalry of Granada. The Castilians turned towards the right. Now they
 attempted to move along the stream towards the south and cross the stream from
 a safe place but on the other side of the stream another group of cavalry was
@@ -612,7 +612,7 @@ After this glorious victory, Musa came down from his horse and performed a
 long prostration. His lips kept repeating this supplication: "Oh
 Oft-forgiving, Merciful Lord! We were not worthy of this yet You rewarded us.
 This is Your mercy upon us." Then he got up and looked at his companions. Badr
-Bin Mughira was at a distance, calling Bashir. Musa ran and grabbed the reins
+bin Mughira was at a distance, calling Bashir. Musa ran and grabbed the reins
 of his horse, pulled his hand towards his lips and said, "Badr! Remove your
 aventail. The people of Granada are dying to see the face of the angel who has
 brought a thousand blessing of his Lord with him."
@@ -671,7 +671,7 @@ Badr enquired, "How is his condition now?"
 The injured man sat resting against an olive tree. A few soldiers stood around
 him. Seeing Badr bin Mughira and his companions the soldiers stepped aside.
 Badr got off his horse and went close to the injured man. At first glance Badr
-Bin Mughira couldn't recognize him but as he sat with a knee on the ground and
+bin Mughira couldn't recognize him but as he sat with a knee on the ground and
 looked at him, a shiver ran through his body after which he stood up. The
 injured man raised his head and said in a feeble voice, "Today you have saved
 the life of someone who didn't deserve to live. I am your criminal. I am your
@@ -827,7 +827,7 @@ After Badr bin Mughira, Musa got up and made the following speech:
 
 "Muslims! Four hundred years ago when the Christians took advantage of our
 internal anarchy and captured most of the areas of our Sultanate, then,
-destiny sent Yousuf Bin Tashfeen to our aid who got rid of such an enemy for
+destiny sent Yousuf bin Tashfeen to our aid who got rid of such an enemy for
 the Muslims that had a tight noose around us for a long time and today when
 the hypocrites amongst us had opened the doors of our homes for the enemy,
 when a group of hypocrites had made us wear the shackles of Ferdinand's

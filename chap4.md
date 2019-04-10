@@ -149,7 +149,7 @@ coachman. The poor soul has been injured very badly."
 After three days, Rabia's headache had eased considerably but because of the
 pain in her knee, she could not walk without support. The cavalryman who had
 saved her life and the physician treating her were Badr bin Mughira and Bashir
-Bin Hassan. Abu Dawood was surprised how The Frontier Falcon suddenly reached
+bin Hassan. Abu Dawood was surprised how The Frontier Falcon suddenly reached
 there for their help. In the past three days, he had, more or less, gained the
 trust of Badr bin Mughira after telling Ferdinand and his rulers' tales of
 oppression. After Friday prayers, he delivered a passionate speech in front of
@@ -343,7 +343,7 @@ would go every second or third day to give necessary instructions to his
 warriors and return. Although Abu Dawood had gained his trust a little after
 telling him a concocted story, he was not inclined to allow any stranger on
 his side of the border without a written recommendation from Al-Zeghel or
-Musa. This is the reason he had called Bashir Bin Hassan here from the forest
+Musa. This is the reason he had called Bashir bin Hassan here from the forest
 instead of taking Rabia to his residence for treatment.
 
 Apart from her father, who had married a Christian girl a year after the
@@ -414,7 +414,7 @@ unbearable, then, she would be compelled to quarrel. These quarrels had more
 to do with emotions than logic and reason. Maria and Angela would try to
 impress her with Ferdinand's pomp and the magnificence of the rulers of Rome.
 She would reply by telling the legends of Tariq, Musa, Abdul Rehman the Great
-and Yusuf Bin Tashfeen.
+and Yusuf bin Tashfeen.
 
 Maria and Angela would say that one of their priests had dreamt that God has
 chosen Ferdinand to drive the Muslims out of Andalus and she would reply
@@ -492,7 +492,7 @@ importance in the vast system of the universe.
 Until her condition was critical, he kept visiting her day and night. But when
 she started becoming healthy, he seldom came into her room
 
-Bashir Bin Hassan would come to change her bandage twice a day. Angela would
+Bashir bin Hassan would come to change her bandage twice a day. Angela would
 anxiously wait to hear the footsteps of this young and pleasant physician and
 would rush to open the door for him. And when he would attend to Rabia, she
 would come and sit close to her and would try to gain his attention.
@@ -513,14 +513,14 @@ again. She actually was groaning with pain last night."
 
 "Very well, I will have a look."
 
-After Bashir Bin Hassan finished dressing Rabia's wounds and examined Angela's
+After Bashir bin Hassan finished dressing Rabia's wounds and examined Angela's
 teeth, pondered for a while and asked her mother, "Has she complained of
 toothache before?"
 
 Maria replied, "No."
 
 He would ponder again while Angela looked the other way, suppressing her
-laughter. Bashir Bin Hassan said, "There could be some problem at the root of
+laughter. Bashir bin Hassan said, "There could be some problem at the root of
 the teeth but apparently there are no visible signs of that. Anyway, I will
 give a new medicine. Rub it nicely over your gums."
 
@@ -549,7 +549,7 @@ his are poles apart. You must give respect to his stature."
 Angela would say laughing, "You're worrying unnecessarily. Trust me, it was
 only a joke."
 
-One evening when Abu Dawood was present, Bashir Bin Hassan was dressing
+One evening when Abu Dawood was present, Bashir bin Hassan was dressing
 Rabia's wounds. Maria said, "Angela could not sleep last night too. Please
 have a good look at her teeth."
 
@@ -579,7 +579,7 @@ Abu Dawood said, "Yes my daughter. Drink it up. It's for your own good."
 
 As usual Angela while looking at Bashir said, "I won't be harmed by this, would I?"
 
-Abu Dawood said in anger, "Harm with Bashir Bin Hassan's medicine?! Angela
+Abu Dawood said in anger, "Harm with Bashir bin Hassan's medicine?! Angela
 you're so ignorant."
 
 After a moment's indecision Angela gulped the unbearably bitter medicine down
@@ -595,7 +595,7 @@ Rabia, who burst into laughter.
 After sulking for a bit, Angela, too, was laughing as a bewildered Maria said,
 "Both of you are crazy."
 
-The next day, praising Bashir Bin Hassan in front of her husband, Maria was
+The next day, praising Bashir bin Hassan in front of her husband, Maria was
 saying, "This physician is indeed very competent."
 
 The fort was situated at an elevation. Its boundary was as high as the height
@@ -615,13 +615,13 @@ small stream.
 The access to this room was through two doors that opened into Abu Dawood's
 room. It also comprised a huge balcony facing the patio. On the right side of
 Abu Dawood's room was a small cabin where his coach man was recuperating and
-on its left side were the room of Badr bin Mughira and Bashir Bin Hassan.
+on its left side were the room of Badr bin Mughira and Bashir bin Hassan.
 Further down were lodges of the army officers.
 
 During the day, Badr bin Mughira would hardly find the time to sit with Abu
 Dawood. Early morning, he would set out on his horse to supervise the border
 check posts. Sometimes, he would stay out during the night too, but, in his
-absence, Bashir Bin Hassan would carry out the duties of Abu Dawood's
+absence, Bashir bin Hassan would carry out the duties of Abu Dawood's
 hospitality. Not only was Bashir an excellent physician, but he was also a
 scholar par excellence too. However, he too was quite impressed by Abu
 Dawood's command over history, philosophy and other sciences. During the day,
@@ -806,7 +806,7 @@ But this latest conversation with Abu Dawood had opened up a new avenue for
 her to ponder upon. It kindled several lamps in the obscurity of the future in
 front of her. Today, for the first time, she was thinking that her meeting
 with Bashir was not an incident that would not have an outcome. For a few
-moments she went far away from this room. She was seeing Bashir Bin Hassan in
+moments she went far away from this room. She was seeing Bashir bin Hassan in
 the royal court of Castile. She was preaching Christianity to him in her home.
 Then, the Lord Bishop of Castile was baptizing him and they were exchanging
 vows in front of the Holy Mary in a church and the priest was sprinkling holy

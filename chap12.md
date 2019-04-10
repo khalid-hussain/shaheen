@@ -185,7 +185,7 @@ been annihilated and three days later, the Frontier Falcon's warriors had
 rallied under Al-Zeghel's banner. Al-Zeghel's army feared the enemy's size but
 their morale was boosted when they heard about the glorious victory. Al-Zeghel
 inspected all the checkposts around his camp alongwith Badr bin Mughira and
-Mansour Bin Ahmed. Apart from Badr bin Mughira's men, no one knew that he was
+Mansour bin Ahmed. Apart from Badr bin Mughira's men, no one knew that he was
 alive. On seeing a veiled person with Al-Zeghel they would believe that after
 the snatching of Badr bin Mughira, destiny had given them a new supporter. His
 camp was a little away from the encampment of the rest of the army and only a
@@ -194,8 +194,8 @@ permission to go there.
 
 The bellicose tribes of Alpujarras thronged under Al-Zeghel's banner. After a
 long time, they got a chance to fight alongside the mujahideen of the falcon's
-territory. Because Mansour Bin Ahmed used to be considered Badr bin Mughira's
-successor, therefore, they requested Al-Zeghel to give them under Mansour Bin
+territory. Because Mansour bin Ahmed used to be considered Badr bin Mughira's
+successor, therefore, they requested Al-Zeghel to give them under Mansour bin
 Ahmed's command. Mansoor prepared the battle map according to Badr bin
 Mughira's instructions and spread the tribal mujahideen on the entire
 pathways. He instructed them to seal the areas behind the Christian army as it

@@ -35,7 +35,7 @@ from the life of truth.
 We are very few in numbers. Our resources are limited but turn the pages of your
 previous history and remember that day when group of a handful of faithfuls,
 with stones tied to their stomach, obliterated the might of Caesar and Kisra.
-Recall that day when Tariq Bin Ziyad had burned his ship at the shore of Andalus
+Recall that day when Tariq bin Ziyad had burned his ship at the shore of Andalus
 and gave the message to his diehard fighters that the feet of the Muslims are
 for marching forward not stepping backwards.
 
@@ -129,7 +129,7 @@ Muslims within a span of a few days and quelled the revolt.
 
 When the banners of freedom were still fluttering in the mountains and forests
 of the South-east, Ferdinand dispatched many mission for the suppression of Badr
-Bin Mughira but had to face humiliation every time. The number of mujahideen in
+bin Mughira but had to face humiliation every time. The number of mujahideen in
 the Valley of the Falcons was diminishing every single day. Dejected, many of
 his comrades were emigrating but there was no relent in his determination and
 liberty.
@@ -196,7 +196,7 @@ come?"
 
 "Daughter! He will be here tomorrow."
 
-Yusuf was Badr bin Mughira's son and Zubaida was Bashir Bin Hassan's daughter.
+Yusuf was Badr bin Mughira's son and Zubaida was Bashir bin Hassan's daughter.
 After talking to the children for a while, Badr bin Mughira left them in the
 other room and they reluctantly laid down into their respective beds.  
 
@@ -240,14 +240,14 @@ had learned to dispense first aid, were helping the physicians and surgeons.
 They had spent the last few days in extreme discomfort. The number of injured
 coming from the western front was increasing by the day. Apart from this fort,
 another fort that was a few miles away from this one, had also been prepared to
-treat the injured, therefore, Bashir Bin Hassan had to go there too once a day.
+treat the injured, therefore, Bashir bin Hassan had to go there too once a day.
 Alarming news was being received everyday about the war. The mujahideen had
 pushed the enemy back several times but with every defeat the enemy was bringing
 fresh troops into the field. This was the first battle of the Frontier Falcon in
 which the number of the martyrs had reached to around one thousand.
 
 One day, early in the morning, a messenger coming from the battlefront and gave
-the good news to Bashir Bin Hassan that the mujhahideen are pursuing Ferdinand's
+the good news to Bashir bin Hassan that the mujhahideen are pursuing Ferdinand's
 armies after giving them a defeat. Drums of victory were played in the fort. The
 ears of the people living in nearby settlements and military checkposts were
 familiar with the meaning of this beat and in reply to this they too began
@@ -272,13 +272,13 @@ evening. The people of the settlement kept waiting for their revered leader for
 a long time but by nightfall when there was no news of Badr bin Mughira's
 arrival, they started heading towards their homes.
 
-After Isha prayers as Bashir Bin Hassan was heading towards the room of the
+After Isha prayers as Bashir bin Hassan was heading towards the room of the
 injured people after leaving the mosque, he heard the sound of galloping of a
 few horses outside the fort. Bashir stopped and started looking towards the gate
 of the fort. The guard opened the gate and four horsemen entered inside. One of
-the horsemen stopped and addressed the guard, "Where is Bashir Bin Hassan?"
+the horsemen stopped and addressed the guard, "Where is Bashir bin Hassan?"
 
-Recognizing the voice of the horseman, Bashir Bin Hassan stepped forward and
+Recognizing the voice of the horseman, Bashir bin Hassan stepped forward and
 said, "Abu Mohsin! I am over here."
 
 Abu Mohsin said, "I have come to take you along. Please get ready quickly. Badr
@@ -295,7 +295,7 @@ Abu Mohsin asked the soldiers who were gathering around him to put reins on
 fresh horses.
 
 Badr bin Mughira was lying on a bed in the house of a chief of the settlement.
-While lying on the bed he had fainted three times. Some of Mansour Bin Ahmed's
+While lying on the bed he had fainted three times. Some of Mansour bin Ahmed's
 men were standing close to his bed. Two of them were also the physicians who had
 come with Badr from the battlefield.
 
@@ -305,7 +305,7 @@ and praying for their revered leader.
 There were seven wounds on Badr bin Mughira's body. Even in this injured state
 he had pursued the fleeing enemy for several miles and had lost a lot of blood.
 
-The people were very anxiously waiting for Bashir Bin Hassan. Badr bin Mughira
+The people were very anxiously waiting for Bashir bin Hassan. Badr bin Mughira
 asked for water after gaining consciousness for the fourth time. Mansoor
 personally supported him with his hand and assisted him in drinking water. After
 drinking a few drops of water, Badr said in a feeble voice, "Recite the Quran to
@@ -316,7 +316,7 @@ touch by it, the mujahid closed his eyes. A physician stepped forward and tried
 to feel his pulse but Badr bin Mughira said while smiling, "I am not unconscious
 now. This sound wakes me up. It doesn't make me go to sleep."
 
-Galloping of horses could be heard from a distance and after a while Bashir Bin
+Galloping of horses could be heard from a distance and after a while Bashir bin
 Hassan entered into the room, walking briskly. The people moved here and there.
 Cheerfulness suddenly appeared on Badr's withered face as soon as he saw Bashir.
 Bashir stepped forward and placed his hand on the pulse.
@@ -346,7 +346,7 @@ bedside. After taking a close look at Badr's face, Bashir said, "He has been
 injured with some poisoned weapon. I would like to take a look at all the
 wounds."
 
-Bashir Bin Hassan's comrades were now opening the bandages of one wound after
+Bashir bin Hassan's comrades were now opening the bandages of one wound after
 the other while he was busy in placing fresh swabs over each wound and tying
 them up with new bandages. He had still not finished doing this when he heard
 the sound of galloping horses outside. Bashir looked at Mansoor and said, "Maybe
@@ -445,7 +445,7 @@ Rabia said tearfully, "Yusuf won't put a stain on your name but..." Badr asked,
 deprive him of your shade. You will be healthy. You will live. The nation needs
 you." Rabia was crying terribly.
 
-Bashir Bin Hassan and Angela entered into the room. Wiping her tears Rabia stood
+Bashir bin Hassan and Angela entered into the room. Wiping her tears Rabia stood
 up and said, "Please forgive me." Badr closed his eyes after a dejected smile.
 
 Badr fainted several times until morning. Thousands of people from around the
@@ -469,13 +469,13 @@ Kalima-e-Tayyiba several times. His voice started becoming weaker till a point
 where his lips were moving but his voice could not be heard. The well-wishers
 thought that he was sleeping. The physicians thought that he had fainted.
 
-Bashir Bin Hassan placed his hands on Badr's pulse for the last time. Then Badr
+Bashir bin Hassan placed his hands on Badr's pulse for the last time. Then Badr
 opened his eyes and took a look and then bowed his head after saying, "We belong
 to Allah and to Him is our return."
 
 After two months some boats which had women and children riding on them was
 heading from the shore of Andalus to Morocco. Angela, Rabia, Zubaida and Yusuf
-were with Bashir Bin Hassan on one of the boats.
+were with Bashir bin Hassan on one of the boats.
 
 The sun was appearing from the eastern horizon. This was that very sun that had
 witnessed the first ship of the Conquerors of Islam at the shores of Andalus.
@@ -534,11 +534,11 @@ shoot an arrow."
 "Okay, my daughter."
 
 On the other side of the boat, the Moroccan captain of this fleet was having a
-conversation with Bashir Bin Hassan. After asking a few questions regarding Badr
-Bin Mughira's latest victory and martyrdom, the captain asked, "Until when will
+conversation with Bashir bin Hassan. After asking a few questions regarding Badr
+bin Mughira's latest victory and martyrdom, the captain asked, "Until when will
 you continue this war?"
 
-Bashir Bin Hassan replied, "Until blood keeps running in our veins, the desire
+Bashir bin Hassan replied, "Until blood keeps running in our veins, the desire
 for martyrdom will remain in our hearts."
 
 The captain said, "I respect your feelings but don't you think that your war
@@ -597,13 +597,13 @@ the sanctity of the Sacred Mosque."
 
 After pondering for a while, the captain said, "Can I join your group?"
 
-Bashir Bin Hassan replied, "You don't need my permission. Seek advice from your
+Bashir bin Hassan replied, "You don't need my permission. Seek advice from your
 heart."
 
 "I have already taken the advice from my heart."
 
 The mujahideen kept fighting for several years under the leadership of their new
-leader Mansoor Bin Ahmed. For ages, the Valley of the Falcons kept being
+leader Mansoor bin Ahmed. For ages, the Valley of the Falcons kept being
 beautified with their blood. Several times their swords proved to be Alexander's
 blow in front of the flood of savagery and barbarism. At times they would have
 to retreat due to the intensity of this flood and at times the waves of the
@@ -615,8 +615,8 @@ oasis and the Muslim monarchs of India were busy in building luxurious palaces
 for themselves.
 
 These people remained with their unsheathed swords for several years but no
-Yusuf Bin Tashfeen from Morocco, no Salahuddin Al-Ayyoubi from Egypt, no Malek
-Shah from Turkey, no Mohammad Bin Qasim from the Arabs and no Mahmood Ghaznavi
+Yusuf bin Tashfeen from Morocco, no Salahuddin Al-Ayyoubi from Egypt, no Malek
+Shah from Turkey, no Mohammad bin Qasim from the Arabs and no Mahmood Ghaznavi
 from Afghanistan came to their aid. The dust of Andalus kept being watered with
 the blood of the martyrs while the rocks of Gibraltar kept waiting for the ships
 from the south and east. Until Mansoor and his comrades kept fighting the way

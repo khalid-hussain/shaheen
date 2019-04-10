@@ -20,7 +20,7 @@ slogans of victory in the streets and markets. Abul Hassan looked towards the
 sky, then raised his hands and supplicated:
 
 "O Lord! Give strength to my weak hands. Grant me the determination of Tariq
-Bin Ziyad and the morale of Musa Bin Naseer. Grant my people, once more, the
+bin Ziyad and the morale of Musa bin Naseer. Grant my people, once more, the
 fiery of those mujahideen whose horses drank water from the rivers of France
 on one side and the rivers of China from the other. Transform our disunity
 into unity. You can change this pile of sand to a cliff. My Lord! Don't
@@ -366,7 +366,7 @@ with his horse and said in a commanding voice, "This is no time to talk.
 Proceed to Loja immediately."
 
 Amazed after recognizing the voice of the masked man, Al-Zaghairi said, "Only
-Musa Bin Abi Ghassan can talk to me like that and no one else."
+Musa bin Abi Ghassan can talk to me like that and no one else."
 
 The masked man said, "But no one should know that I came here. The Sultan
 would be very upset. Don't mention anything about me to him. Leaving Granada
@@ -378,11 +378,11 @@ soldiers saw them disappear in the clouds of dust just as they had appeared.
 
 When Badr bin Mughira received the news that the rest of Granada's army was
 gathering to fight a decisive battle at Loja, he decided to give a final blow
-to the army of Cordova and sent across a message to his deputy, Mansour Bin
+to the army of Cordova and sent across a message to his deputy, Mansour bin
 Ahmed to position himself along with two thousand horsemen behind the army of
 Cordova.
 
-Mansour Bin Ahmed ravaged the cities and villages along his path and reached
+Mansour bin Ahmed ravaged the cities and villages along his path and reached
 the rear of the army of Cordova with incredible speed. As soon as Badr bin
 Mughira received his news, he moved his infantry soldiers back a few miles and
 ordered his cavalry to attack the enemy's left and right flanks. On seeing the
@@ -390,16 +390,16 @@ infantry retreating, the General of the Cordova's army came to the conclusion
 that like Al-Zaghairi, the Frontier Falcon too is removing his troops from
 this front to take part in the battle at Loja. He had already received orders
 from Ferdinand to keep the enemy engaged at this front until the outcome of
-Loja's front. So far, he was unaware of Mansour Bin Ahmed's arrival. He
+Loja's front. So far, he was unaware of Mansour bin Ahmed's arrival. He
 ordered his rear cavalry to pursue the retreating foot infantry but within
 this period the infantry archers had positioned themselves behind a trench.
 
 The lancers of Cordova were greeted with a volley of arrows as they approached
 the trenches and the only option the General saw was to retreat but by this
-time Mansour Bin Ahmed had already attacked from the rear and troops in the
+time Mansour bin Ahmed had already attacked from the rear and troops in the
 rear flank were pushing the troops in the center, as they took a beating.
 
-With Badr bin Mughira's troops on the right and left and Mansour Bin Ahmed's
+With Badr bin Mughira's troops on the right and left and Mansour bin Ahmed's
 horsemen in the rear, the army of Cordova had been taken into a tight noose.
 In front of them was that trench across which the archers were positioned. The
 analogy of the army of Cordova was no different than that of a ship in the
@@ -419,11 +419,11 @@ face of Ferdinand's army of fifty thousand. For two days, Ferdinand's knights
 and Granada's fighters were displaying individual feats of valor. The battle
 began when one of Ferdinand's knights, who was covered in metal from head to
 toe, galloped forward and stood in the battlefield. He raised his sword. Naeem
-Bin Ridwan, who wore an aventail on his head and a light coat-of-mail on his
+bin Ridwan, who wore an aventail on his head and a light coat-of-mail on his
 body, galloped forward.
 
 The swords of both the horse riders clashed. Because of his heavy armor, the
-Castilian knight could not display his agility as Naeem Bin Ridwan, however,
+Castilian knight could not display his agility as Naeem bin Ridwan, however,
 his thick armor was causing damage to Naeem's sword repeatedly. After blocking
 a few of his strokes on his shield, Naeem gave a profound blow with his sword
 on the knight's shoulder. Not much injury was inflicted because of the armor
@@ -476,7 +476,7 @@ opponent and Ferdinand's soldiers were raising slogans in jubilation. The
 iron-clad knight raised his sword and made a small round. Then, standing,
 facing the Granada army, he waited for his next opponent.
 
-Naeem Bin Ridwan moved forward to seek permission from Abul Hassan but was
+Naeem bin Ridwan moved forward to seek permission from Abul Hassan but was
 interrupted by a horseman who appeared from one side. His sweating horse
 showed that he was coming from a far distance. Even his attire was different
 from that of Granada's soldiers. He wore a white robe over his body instead of
@@ -528,13 +528,13 @@ Naeem raised the slogan of "Allahu Akbar", fixed the reins of his horse and
 said, "Owing to the happiness of the victory, I pledge to put fifteen of
 Castile's horsemen to death but I would like to use your lance for good luck."
 Saying this he handed over his lance to him and moved forward and grabbed Badr
-Bin Mughira's lance that was still pierced into the ground.
+bin Mughira's lance that was still pierced into the ground.
 
 Four of Ferdinand's knights, who came one after the other for a duel faced
 death at the hands of Naeem. After the fatality of the last knight, Ferdinand
 gave the order of an all-out attack.
 
-By noon, when the battle was at its thickest, Mansour Bin Ahmed arrived with
+By noon, when the battle was at its thickest, Mansour bin Ahmed arrived with
 Badr's army. By afternoon, Ferdinand's army started to show signs of defeat.
 
 Naeem had already condemned fourteen men to death and before he could fulfill
@@ -561,16 +561,16 @@ I could fulfill my pledge."
 his lance into the chest of a horseman who had approached for a duel. The
 Christian horseman fell off his horse but at the same time Naeem's head
 lowered in a state of becoming unconscious. Badr dashed his horse towards the
-tents of the wounded. A few young men took Naeem Bin Ridwan inside after
+tents of the wounded. A few young men took Naeem bin Ridwan inside after
 taking him off the horse.  
 
-Badr bin Mughira jumped off his horse and entered the tent. Bashir Bin Hassan
+Badr bin Mughira jumped off his horse and entered the tent. Bashir bin Hassan
 was busy dressing the injured but he immediately turned his attention towards
 Naeem.
 
 Badr said, "Bashir, try to save him."
 
-After examining his pulse Bashir Bin Hassan quickly opened his armor and after
+After examining his pulse Bashir bin Hassan quickly opened his armor and after
 reexamining his pulse, looked towards Badr and shook his head.
 
 Badr said in a chocked voice, "Can't you do something?"
@@ -618,7 +618,7 @@ just to raise the morale of the army?"
 Abbas was one of the commanders in the army of Granada. He said, "These events
 were such that they could only be believed by the eyes that have witnessed
 them but the ears might find them incredible to believe." Then, Abbas narrated
-the entire details of the battle. When he mentioned the feats of Mansour Bin
+the entire details of the battle. When he mentioned the feats of Mansour bin
 Ahmed, Abul Hassan said, "Had I known that Badr bin Mughira's quiver possessed
 such arrows, then, instead of now, I would have declared war a few years
 earlier."

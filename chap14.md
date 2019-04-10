@@ -8,7 +8,7 @@ the reins and halted his horse at a few distance away from Badr bin Mughira.
 Badr bin Mughira took two or three steps forward and said, "Bashir! It seems
 that you have not come with any good news."
 
-Bashir Bin Hassan dismounted the horse and after shaking hands with Badr bin
+Bashir bin Hassan dismounted the horse and after shaking hands with Badr bin
 Mughira said, "The people of Granada would be happy with the news I have but I
 take it as a cause for serious concern. Where is Mansoor?"
 
@@ -18,15 +18,15 @@ soldiers and said, "You will get the instructions after Isha prayers."
 
 After climbing the stairs, Badr and Bashir entered a room on the second story
 of the building. A candle was lit in the room and a cuirass-clad Mansour was
-tying the laces of his socks with his leg on a chair. On seeing Bashir Bin
+tying the laces of his socks with his leg on a chair. On seeing Bashir bin
 Hassan, he stepped forward, extended his hand for a handshake and said,
 "Bashir! It is very good that you came. Just now I was thinking who would
 treat me in case I am injured tonight."
 
-Bashir Bin Hassan said, "Castile's armory has yet to make a sword that would
+Bashir bin Hassan said, "Castile's armory has yet to make a sword that would
 be able to injure Mansour."
 
-The three of them sat on the chairs. Mansour asked Bashir Bin Hassan, "The
+The three of them sat on the chairs. Mansour asked Bashir bin Hassan, "The
 people of Granada must very worried about our veiled companion?"
 
 "Yes, now in every gathering the Frontier Falcon's place has been taken by the
@@ -159,7 +159,7 @@ hope for Muslims in Andalus would vanish before the peep of the morning."
 
 In a very melancholy environment Badr bin Mughira, Bashir and Mansour
 discussed the future of the Muslims of Granada and Andalus in the light of
-Al-Zeghel's letter for a while. Then, Mansour Bin Ahmed pulled out another
+Al-Zeghel's letter for a while. Then, Mansour bin Ahmed pulled out another
 letter from his pocket, presented it to Badr bin Mughira and said, "This
 letter was given to me by Abu Abdullah's wife and she requested me not to
 present it to you unless your anxiety concerning Loja is not settled. She also
@@ -329,7 +329,7 @@ the mountains and forest provided a natural defense for the region.
 After a few days of preparations Ferdinand attacked Beegha and laid siege on
 the city but the mountain tribes came down and started warring from all sides.
 Realizing the significance of Beegha, Badr bin Mughira gave the border's
-security under Mansour Bin Ahmed's command and dashed towards Beegha with two
+security under Mansour bin Ahmed's command and dashed towards Beegha with two
 thousand warriors and in the first attack itself he slaughtered five thousand
 of Ferdinand's troops. The following night he attacked from the rear and
 Al-Zeghel came out of the city and rendered a surprise blow to the enemy. In
@@ -347,7 +347,7 @@ people of Beegha eventually gave in due to intense famine.
 After making Beegha his bastion Ferdinand captured Al-Zeghel's forts in  one
 after the other.
 
-Bashir Bin Hassan was tying a bandage around Badr bin Mughira's wounded arm.
+Bashir bin Hassan was tying a bandage around Badr bin Mughira's wounded arm.
 Mansour entered the room. Badr bin Mughira enquired, "Mansour! You have not
 left as yet?"
 
@@ -452,7 +452,7 @@ said, "Read it out."
 Bashir started reading Ferdinand's letter in a choked voice:
 
 "On the recommendation of Sultan Al-Zeghel, we would like to extend a hand of
-friendship to Mansour Bin Ahmed and his comrades. After a long war, we feel
+friendship to Mansour bin Ahmed and his comrades. After a long war, we feel
 the need for peace and security between the Christians and Muslim for the
 benefit of the people of Andalus and we hope that our brave enemy would
 support us in establishing peace in the light of our extremely generous offer.
@@ -460,7 +460,7 @@ These are our terms and conditions for a compromise:
 
 1. The region between Mount Tadmeer and Al-Shaleer that is known as the Valley
 of the Frontier Falcon would be independent and sovereign. And the people of
-this region would be given the right to choose Mansour Bin Ahmed or some other
+this region would be given the right to choose Mansour bin Ahmed or some other
 person whom they prefer to be their ruler.
 
 2. Assistance would be provided by us in case of any foreign attack.
@@ -468,8 +468,8 @@ person whom they prefer to be their ruler.
 In return for this extremely generous offer, we request the following in return:
 
 "Our forts in the northern and eastern borders that are currently under Mansour
-Bin Ahmed should be returned to us and we should also get a commitment that
-neither Mansour Bin Ahmed nor his successors should ever attack our kingdom's
+bin Ahmed should be returned to us and we should also get a commitment that
+neither Mansour bin Ahmed nor his successors should ever attack our kingdom's
 borders. Apart from this, they should not interfere in the affairs of those
 kingdoms of Granada and Andercus whose rulers have become our allies and they
 will not support any rebel against us whether Christian or Muslim."

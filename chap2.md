@@ -7,7 +7,7 @@ chapters were inked with the blood of Arab conquerors and the great leaders of
 the Umayyad dynasty. Now this great nation, whose grandeur would silence the
 defiant waves of the Mediterranean, was writing its closing chapter with tears
 of hopelessness. That tree of culture and civilization, grown by the
-chivalrous Tariq Bin Ziyad, Musa Bin Naseer and the successors of Abdul
+chivalrous Tariq bin Ziyad, Musa bin Naseer and the successors of Abdul
 Rehman, was now facing the strong and defiant winds of autumn.
 
 The Muslims entered this country like a storm. When all the walls of
@@ -37,7 +37,7 @@ Plato sat at the feet of its scholars?'.
 The spirits of Andalus' historians, who maybe, each evening, wander around
 these deserted places, reply to us saying, "Yes! This Spain is the same
 Andalus that belonged to the Arabs, whose power and majesty has become a
-legend of the past. This Rock of Gibraltar is the same one where Tariq Bin
+legend of the past. This Rock of Gibraltar is the same one where Tariq bin
 Ziyad's ships had anchored. Cordova is that very city where the pompous courts
 of Abdul Rehman III would leave the ambassador of great emperors absolutely
 awestruck. This Andalus is the same, however, the nation whose sweat and blood
@@ -76,13 +76,13 @@ all the rulers of Spain became his subjects, and loot, murder and plunder
 flourished after military check posts were established throughout the length
 and breadth of the country.
 
-During these troubled times, Yusuf Bin Tashfeen, the ruler of Algeria and
+During these troubled times, Yusuf bin Tashfeen, the ruler of Algeria and
 Morocco, came to the rescue of the Muslims. He rescued the Muslims from the
 mighty claws of the Christians. However, he could not unite the imprudent
 Muslims strategically. When all his strategies and efforts failed, he captured
 Andalus and made it a province of his African empire.
 
-The African dynasty of Al-Moravid that was founed by Yusuf Bin Tashfeen could
+The African dynasty of Al-Moravid that was founed by Yusuf bin Tashfeen could
 not be established for long. As soon as the nobles of Andalus sensed the
 weakness of the rule, they quickly seceded and every major city became a
 separate kingdom. At this critical stage, Abdul Momin tried to support this
@@ -516,7 +516,7 @@ groups of various cities found out that the Frontier Falcon is none other than
 Mughira's young son, some of them, who were keen on taking part in jihad, left
 their homes and joined-up with him.
 
-One such individual who migrated from Cordova was Bashir Bin Hassan. Living up
+One such individual who migrated from Cordova was Bashir bin Hassan. Living up
 to the reputation of his famous ancestry, he became a skillful physician and
 surgeon at a very young age. He proved to be a valuable asset and support to
 Badr.
@@ -548,7 +548,7 @@ Falcon had promised to give a few days' training to them in his forest.
 "training will prove beneficial for you."
 
 The troops were more excited to have a look at the Shaheen of the forest than
-to learn new war tactics. Badr bin Mughira's lieutenant, Mansour Bin Ahmed,
+to learn new war tactics. Badr bin Mughira's lieutenant, Mansour bin Ahmed,
 would receive the troops disguised as the Frontier Falcon and would send them
 back after training them for a few days on the war tactics of fighting in the
 forest and mountains.

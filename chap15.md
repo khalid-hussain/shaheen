@@ -1,5 +1,5 @@
 
-# Tareef Bin Malik
+# Tareef bin Malik
 
 When Abu Abdullah got to know that his uncle had left Andercus for Africa he
 sent a message of congratulations to Ferdinand in Malaga and ordered for a
@@ -61,7 +61,7 @@ hopelessness was settling allover Al-Hamra.
 Abu Abdullah looked at Ferdinand's emissary and said in a feeble voice,
 "Emperor Ferdinand will have a reply from us within a couple of days."
 
-Abu Abdullah's new minister was Tareef Bin Malik, who was the biggest chief of
+Abu Abdullah's new minister was Tareef bin Malik, who was the biggest chief of
 the tribal Berbers. He stood up and replied, "Ferdinand certainly has some
 misunderstanding about us and we are sure this misunderstanding will be
 removed. If you deem appropriate, I am ready to go to him."
@@ -81,7 +81,7 @@ immediately."
 
 After a while, Tareef was heading towards Loja.
 
-Abu Dawood recognized Tareef Bin Malik as soon as he saw him but contrary to
+Abu Dawood recognized Tareef bin Malik as soon as he saw him but contrary to
 Tareef's expectation of a warm welcome, Abu Dawood did not even stand up from
 his chair for a handshake. He merely gestured towards an empty chair that was
 in front of him.
@@ -566,12 +566,12 @@ was pitch dark inside. When Yaqoob turned an iron latch near the wall next to
 the door, a small window opened up near the ceiling of the opposite wall and
 foggy light entered the room. This room was empty and a man stood behind the
 right side of another cell's narrow door's iron bars and looked towards those
-who had created a commotion to his solitude. This was Musa Bin Abi Ghassan.
+who had created a commotion to his solitude. This was Musa bin Abi Ghassan.
 Even a withered face of this awesome and formidable personality was enough to
 shake the hearts of onlookers.
 
 Hassan took a step forward and said, "We have come to take you out of
-captivity on the orders of Tareef Bin Malik."
+captivity on the orders of Tareef bin Malik."
 
 Musa kept looking at Hassan silently. Hassan repeated, "He is injured and his
 last wish is that you give him a chance to fall at your feet. We have brought

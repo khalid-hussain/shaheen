@@ -8,7 +8,7 @@ headache. Light piercing through the windows was indicating that the time to
 perform the afternoon prayer was diminishing. She got up from her bed, quickly
 performed ablution and after praying, went, once again, into her bed.
 
-A day before, Bashir Bin Hassan had taken-off her bandages and had advised
+A day before, Bashir bin Hassan had taken-off her bandages and had advised
 that the remaining pain in her leg would go away once she starts to walk
 around. And that it would do her good if she strolled outside, near the fort.
 Walking in fresh air would rejuvenate her feeble body.
@@ -37,7 +37,7 @@ Father! I would like that we all leave for Granada immediately."
 
 "But until you're not able to walk about properly, we have to stay here."
 Saying this Abu Dawood left the room and after a while returned with Bashir
-Bin Hassan.
+bin Hassan.
 
 Bashir looked at Rabia, felt her pulse and said, "I think you were not able to
 sleep last night."
@@ -72,16 +72,16 @@ Angela said, "Is it dangerous for us to go down the valley?"
 Bashir said, "There's no danger for guests here."
 
 Rabia was extremely restless for the next two days. She wanted to caution Badr
-Bin Mughira of the approaching danger but she also knew that she won't be able
+bin Mughira of the approaching danger but she also knew that she won't be able
 to do this without putting her father in danger. After pondering and
 reflecting hard, she came up with the idea of meeting Badr bin Mughira. After
-enquiring from Bashir Bin Hassan, she found out that he has gone to his
+enquiring from Bashir bin Hassan, she found out that he has gone to his
 residence in the forest and might not return for the next two days. There were
 four days left for Friday and after every prayer she kept supplicating for him
 not to return from his residence for a few more days.
 
 For two days, she continued to go with Angela for strolls in the mornings and
-evenings. The first morning, Bashir Bin Hassan, who took strolls early in the
+evenings. The first morning, Bashir bin Hassan, who took strolls early in the
 morning met them on his way back. Angela saw him and said, "Look! Now there is
 no flaw in Rabia's walk."
 
@@ -99,7 +99,7 @@ Angela said, "Father was saying that we will be leaving on Saturday."
 
 "Yes, I'm used to waking up early."
 
-Bashir Bin Hassan said this and walked away while Angela turned around and
+Bashir bin Hassan said this and walked away while Angela turned around and
 looked at him for a few moments. Rabia said, "Let's go, Angela."
 
 Startled, Angela looked at her and said remorsefully, "Don't you think he's an
@@ -327,7 +327,7 @@ Rabia left the reins and stood aside. Badr heeled the horse and moved it into
 the stream. Looking at him, she repeatedly said, "Goodbye...goodbye!"
 
 After leaving Rabia along the way, when Angela reached the top of the
-mountain, she saw Bashir Bin Hassan a few feet away, in front of her, coming
+mountain, she saw Bashir bin Hassan a few feet away, in front of her, coming
 down. She sat down on a rock to catch her breath. When Bashir came close, she
 got up while cleaning the sweat on her face with a handkerchief. Suddenly when
 Bashir saw her, he froze in his tracks at a short distance. Then, after
@@ -354,7 +354,7 @@ Bashir was pacing quite swiftly in front of her and a breathless Angela,
 despite her desire, could not speak a word to him.
 
 By the time Angela reached the peak, she was badly gasping for breath. Her
-face was drenched with sweat. Bashir Bin Hassan, being a physician of high
+face was drenched with sweat. Bashir bin Hassan, being a physician of high
 morals, turned and had one look at this image of beauty and turned his face
 again and looked downwards at the lush green valley.  
 
@@ -465,7 +465,7 @@ He felt touched and said, "Silly girl, you are crying?"
 "But I don't understand the reason for these tears. If they convey a message of
 friendship from the Christians to the victorious then I'm afraid they are in
 vain. And if they are because you think our struggle is useless then too this
-message of sympathy is too early. And if you think that Bashir Bin Hassan is
+message of sympathy is too early. And if you think that Bashir bin Hassan is
 so precious that he won't support his people in the path of life and death,
 then too, you're mistaken."
 
@@ -476,7 +476,7 @@ said."
 
 "Angela! Angela!" It was Rabia's voice.
 
-On Angela's silence, Bashir Bin Hassan answered, "Your sister is over here."
+On Angela's silence, Bashir bin Hassan answered, "Your sister is over here."
 Then he addressed Angela and said, "Come on Angela. Your sister is calling."
 
 Angela started walking in front of Bashir. After a while, Angela, Rabia and

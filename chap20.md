@@ -63,7 +63,7 @@ their eyes. They were looking at him spellbound. This was Badr bin Mughira.
 Suddenly another monk came and stood close to him. From his voice it sounded as
 if this was his first attempt at singing. He tried to sync his tone with that of
 his companion but despite trying, his voice would either become too low or two
-high. This was Bashir Bin Hassan.
+high. This was Bashir bin Hassan.
 
 With the last ray of the setting sun, Rabia and Angela were witnessing two
 bright stars of hope on the sky of their destiny. When the pace of the
@@ -154,7 +154,7 @@ Over here, now Don Louis himself was scolding the people and pushing them back.
 
 The moon of the fourth of the lunar month was culminating the short distance of
 its destination and gradually the darkness of the night was increasing. Badr bin
-Mughira and Bashir Bin Hassan were circling around the stack in the garb of
+Mughira and Bashir bin Hassan were circling around the stack in the garb of
 monks. The Inspector of the city, too, was circling the stack vigilantly. Badr
 said to Bashir, "Keep his attention focused on you. He seems to be a clever
 man."
@@ -183,7 +183,7 @@ decision back. The King will nullify the verdict with his decree."
 
 "The King understands the interests of the church better than us."
 
-When Bashir Bin Hassan was talking to the Inspector, Badr bin Mughira went close
+When Bashir bin Hassan was talking to the Inspector, Badr bin Mughira went close
 to Rabia from behind her and while cutting the ropes of her hands and feet,
 whispered to her and said, "Rabia! Will you be able to ride a horse?"
 
@@ -216,7 +216,7 @@ The horseman removed the scaling rope tied next to the reins and gave it in
 Badr's hand.
 
 In the meantime at a distance, the sound of galloping horses was heard and all
-of the people's attention became focused the other way. Bashir Bin Hassan still
+of the people's attention became focused the other way. Bashir bin Hassan still
 had the Inspector's attention by talking on various topics but after hearing the
 sound of galloping horses the Inspector said, "Holy Father, maybe they are
 arriving. Please forgive me but do meet me tomorrow before leaving."
@@ -274,7 +274,7 @@ Inspector's soldiers, trying to be keep a safe distance from the range of
 running horses, were stepping backwards.
 
 Moving Rabia aside, Badr tied the Governor in her place to the wooden pole. In
-the meantime, Bashir Bin Hassan had already tied the Bishop in Angela's place.
+the meantime, Bashir bin Hassan had already tied the Bishop in Angela's place.
 On the other side, the fifty horsemen raised slogans of "Takbeer" as soon as
 they reached close to the crowd and started driving them away using the other
 side of their lances. In a state of extreme panic, the people, screaming and
@@ -307,17 +307,17 @@ people recognized the faces of their Governor and the Bishop but no one felt the
 need to go to their rescue.
 
 The ground was empty after a little while. After organizing the horsemen, Badr
-Bin Mughira said, "Our job is done but we need fresh horses for our return and
+bin Mughira said, "Our job is done but we need fresh horses for our return and
 there is no lack of horses in Loja. We have to return within an hour. Are you
 all ready?"
 
-Mansoor Bin Ahmed's voice could be heard, "We are ready."
+Mansoor bin Ahmed's voice could be heard, "We are ready."
 
 "Let's go."
 
 After riding for about three miles, Bashir and his companions stopped at the
 gates of the four walls of a monastery. Two monks stood waiting for them at the
-gate. As soon as they recognized Bashir Bin Hassan, they called out to someone
+gate. As soon as they recognized Bashir bin Hassan, they called out to someone
 inside to open the gate. The guard opened the gate from inside.
 
 Three more monks stood in the ground of the monastery. They got a hold of the
@@ -381,7 +381,7 @@ Rabia, Angela and the rest of the men in the monastery whose number amounted to
 fourteen, stood ready even before their arrival.
 
 Before giving the orders to depart, Badr said to Abu Mohsin, "Abu Mohsin, our
-job is finished in Loja. Tell me, were you successful or not?" Bashir Bin Hassan
+job is finished in Loja. Tell me, were you successful or not?" Bashir bin Hassan
 started laughing at this and Abu Mohsin became a bit embarrassed and said, "By
 God, he is absolutely a donkey. You left me here unnecessarily. He called me
 himself and said that he is somewhat being convinced about the truth of Islam.
@@ -542,7 +542,7 @@ Please answer."
 
 Rabia raised her neck and looked at him. Words came and stopped at her shivering
 lips. Emotions of gratitude and gratefulness took the aid of lowering eyes. Badr
-Bin Mughira was looking at those tears in her eyes that had a world of words
+bin Mughira was looking at those tears in her eyes that had a world of words
 enclosed in them. In amazement, he said, "Rabia! I am ready to apologize if I
 have hurt you. Rabia, you are crying."
 
@@ -556,7 +556,7 @@ helpless woman's gratitude."
 She became serious and said, "You are joking."
 
 He said, "I don't joke. If no incident occurs today then the last glance of the
-setting sun will fall upon Badr bin Mughira and Rabia Bint Abu Dawood in the
+setting sun will fall upon Badr bin Mughira and Rabia bint Abu Dawood in the
 capacity of husband and wife."
 
 "But today itself? So soon?"
@@ -583,7 +583,7 @@ Angela looked at her and enquired, "When are the two of us leaving?"
 "Rabia! You don't have to hide anything from me. He has already told me
 everything."
 
-"Who? Bashir Bin Hassan?"
+"Who? Bashir bin Hassan?"
 
 "Yes, he came here moments ago."
 
@@ -621,9 +621,9 @@ everything. Sit down."
 Angela sat on a chair and Rabia sat on a chair close to her and began telling
 her the tale of her meeting with Badr bin Mughira.
 
-In a spacious room on the other side of the fort, Bashir Bin Hassan and other
+In a spacious room on the other side of the fort, Bashir bin Hassan and other
 physicians and surgeons were busy in taking care of patients. Badr bin Mughira
-entered into this room. Bashir Bin Hassan was tying a bandage around a wounded
+entered into this room. Bashir bin Hassan was tying a bandage around a wounded
 person. Getting a cue from one of his companions, Bashir turned around and
 looked, then, stood up after giving his bandage a last knot.
 
@@ -752,4 +752,4 @@ regarding Rabia but I am indebted to you. Now go to Angela and console her."
 
 In the evening, the sound of drums was resonating in the valley of the falcons
 from one end of the border to the other. The couples, Badr bin Mughira and
-Rabia, Bashir Bin Hassan and Angela were married.
+Rabia, Bashir bin Hassan and Angela were married.

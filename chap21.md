@@ -4,7 +4,7 @@
 The siege of Granada had entered into its seventh month. The condition of the
 city was deteriorating. The people were sick and tired of starvation. The elders
 of Granada were gathered in a spacious room of Al-Hamra. The Lion of Granada,
-Musa Bin Abi Ghassan, was looking at Abu Abdullah and his courtiers with
+Musa bin Abi Ghassan, was looking at Abu Abdullah and his courtiers with
 wrath-filled glances.
 
 Ferdinand's emissary of peace entered into the room. He came in front of the
@@ -73,10 +73,10 @@ at his Prime Minister and said, "Abul Qasim! Would you like to say something?"
 
 Abul Qasim stood up and replied:
 
-"Great Sultan! I am not Musa Bin Abi Ghassan's opponent. I respect his feelings
+"Great Sultan! I am not Musa bin Abi Ghassan's opponent. I respect his feelings
 but if he doubts my good intentions then I am ready to resign at this very
 moment. My crime is that I have opposed the idea of going out of the city in the
-open ground for a decisive battle. But Musa Bin Abi Ghassan knows that my
+open ground for a decisive battle. But Musa bin Abi Ghassan knows that my
 opposition was not because of cowardice. I had merely given the opinion that if
 the outcome of the battle was not in our favor then we would have to face dire
 consequences.
@@ -101,7 +101,7 @@ the door of negotiations should not be closed."
 Another chief stood up and said, "Swayed by emotions, we should not ignore the
 harsh realities. The people of the city are dying of hunger. If this siege
 continues till winter then our condition will become even worse. Besides Badr
-Bin Mughira's handful of troops on the outside, we have no hope of aid from
+bin Mughira's handful of troops on the outside, we have no hope of aid from
 anyone else. Our people are sick and tired of the double trouble of starvation
 and war."
 
@@ -201,7 +201,7 @@ four days. The majority of the nobles had already expressed their opinions in
 favor of this agreement. Today was the last day of the discussion.
 
 The last roar of the Lion of Granada could be heard in Al-Hamra. The attendees
-of the court were looking at him spellbound. Musa Bin Abi Ghassan was saying:
+of the court were looking at him spellbound. Musa bin Abi Ghassan was saying:
 
 "People of Granada! On your withered faces, I am reading the verdict of the
 destiny of that nation that has ruled this country for eight hundred years. I
@@ -228,7 +228,7 @@ coming generations? Slavery, humiliation and disgrace!
 
 If you lay down your arms then not only our sacrifices of the past few years
 will go to waste but  all that blood will also go to waste that has been shed by
-the Muslims from the time of Tariq Bin Ziyad until today. Today the spirits of
+the Muslims from the time of Tariq bin Ziyad until today. Today the spirits of
 the martyr of the nation are looking at you. Do not dishonor their blood. Even
 today it is my faith that we can win this war. You say that the people of
 Granada are tired of hunger and starvation but is it hunger that makes a coward
@@ -250,7 +250,7 @@ your emotions. There is no doubt about your bravery but you are ignoring the
 bitter realities. You know very well that no fortification can be captured by
 mere words."
 
-Musa Bin Abi Ghassan thundered back and said, "Sit down. You are the one guilty
+Musa bin Abi Ghassan thundered back and said, "Sit down. You are the one guilty
 of ignoring the bitter realities not me!"
 
 But as soon as he sat down, a religious scholar stood up and said, "Musa!
@@ -311,7 +311,7 @@ the people will, once again, rise to the occasion but if you are in support of
 the treaty then expecting anything from the army and the people will be in vain.
 I pray to God that He guides you in making the decision."
 
-A Berber chief stood up and said, "Musa Bin Abi Ghassan knows that we have
+A Berber chief stood up and said, "Musa bin Abi Ghassan knows that we have
 supported him in war despite being in the most pessimistic of times but now the
 circumstances are such that drawing a veil over them would be in vain.
 Ultimately there would be two outcomes of the war. Total victory or total
@@ -466,7 +466,7 @@ in their hearts for him. Instead of ruling over them with the help of the
 Christian army he immigrated to Morocco and got employed in the army of the
 Sultan.
 
-Musa Bin Abi Ghassan's reservations proved to be right. The treaty which the
+Musa bin Abi Ghassan's reservations proved to be right. The treaty which the
 people of Granada thought was a message of peace and tranquility was actually a
 plot of deception and they were trapped in it. The sword had scrapped the
 writings of the pen. The victor was changing the interpretation of the terms of

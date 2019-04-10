@@ -66,7 +66,7 @@ No. You do not have the permission to go and duel with him."
 
 The cavalier from Granada removed his aventail as he approached close to the
 gate of the city. The guards lowered their heads in his respect. This was Musa
-Bin Abi Ghassan. The last sword of the Muslims of Granada.
+bin Abi Ghassan. The last sword of the Muslims of Granada.
 
 Abu Dawood stood in front of Ferdinand. In a state of extreme helplessness, he
 was witnessing the effects of his pleas on the face of the King. The King had
@@ -245,8 +245,8 @@ destroyed by any Ferdinand of the enemy, but, there are their own Abu Dawood's
 among them who send them to the pangs of death. Goodbye, Al-Hamra! Farewell,
 Granada!!"
 
-A little after Isha prayers, Badr bin Mughira was sitting with Bashir Bin
-Hassan, Mansour Bin Ahmed and some other main commanders in a room of his
+A little after Isha prayers, Badr bin Mughira was sitting with Bashir bin
+Hassan, Mansour bin Ahmed and some other main commanders in a room of his
 mountain fort. A day before, his army had returned after conducting a successful
 assault at the border and now the details of a new attack was being finalized.
 
@@ -265,7 +265,7 @@ got an important piece of news."
 "What is his name?"
 
 "He even refuses to tell his name. He says that if the Supreme Commander cannot
-meet him then he should be presented in front of Bashir Bin Hassan."
+meet him then he should be presented in front of Bashir bin Hassan."
 
 After thinking for a while, Badr bin Mughira said, "Who can he be? Fine, call
 him!"
@@ -289,7 +289,7 @@ arms down."
 "No. What I have come to tell you is that the court of Loja has sentenced Rabia
 and Angela to be burned alive and if you want, you can save them."
 
-Badr bin Mughira and Bashir Bin Hassan would at times be looking at each other
+Badr bin Mughira and Bashir bin Hassan would at times be looking at each other
 and then at Abu Dawood. Their glances were saying that Abu Dawood is lying. He
 has brought a new trap for them but their heart was saying 'what if this news is
 true?' In their sight Abu Dawood was the meanest person ever but despite this
@@ -297,7 +297,7 @@ conviction, imaging Rabia and Angela being burned alive was enough to get them
 disturbed and worried.
 
 Abu Dawood reiterated, "I know you won't believe me. You are right to consider
-me a double-crosser, conman and a hypocrite but you and Bashir Bin Hassan know
+me a double-crosser, conman and a hypocrite but you and Bashir bin Hassan know
 Rabia and Angela far more than you know me. Rabia was already a Muslim and now
 Angela too has become a Muslim. You know that they possess feminine modesty and
 pride in their hearts. I have come to tell you that one of Ferdinand's knight
@@ -425,7 +425,7 @@ breakfast when a soldier nervously entered into the room and gave the news that,
 instead of his bed, Abu Dawood is lying unconscious on the floor. These people
 went running into his room.
 
-Abu Dawood was lying with his face on the floor. Bashir Bin Hassan quickly
+Abu Dawood was lying with his face on the floor. Bashir bin Hassan quickly
 turned him around after putting his hand on his pulse and said after opening his
 eyes, "He is dead. I think he poisoned himself."
 
@@ -434,7 +434,7 @@ lying on a small table Badr bin Mughira picked up a few papers that had Abu
 Dawood's writings on them. On Bashir's cue, the soldiers picked up Abu Dawood
 and lay him on the bed.
 
-After frisking him, Bashir Bin Hassan recovered a small silver box from his
+After frisking him, Bashir bin Hassan recovered a small silver box from his
 pocket. After opening and taking a look inside it, he said, "He has taken that
 poison whose antidote is not known to this day."
 
@@ -489,7 +489,7 @@ Abu Dawood, the politician, might never have confessed to these crimes of his
 under any condition but Angela and Rabia's father sees their benefit only in
 this that before dying, he should remove all his masks. After me, if the lives
 of these girls can be saved by some plan of yours, then, I entrust Rabia to you
-and Angela to Bashir Bin Hassan. For quite sometime, I knew that they had chosen
+and Angela to Bashir bin Hassan. For quite sometime, I knew that they had chosen
 both of you to be their friend and protector but in the scheme of my life there
 was no place for the respect of their wishes. I viewed them as a father only
 when I got to know, that in my absence, the court of Loja has sentenced them to
