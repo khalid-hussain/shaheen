@@ -1,0 +1,12 @@
+---
+author: Naseem Hijazi
+title: Shaheen
+date: 10 April 2019
+documentclass: memoir
+classoption:
+  - oneside
+  - ebook
+toc: true
+fontfamily: sourcesanspro
+fontfamilyoptions: default
+---
