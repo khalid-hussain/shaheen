@@ -14,7 +14,7 @@ The Muslims entered this country like a storm. When all the walls of
 opposition broke down and the people of Spain laid their arms down in front of
 the Arab horsemen, this storm changed to clouds of mercy and the barren lands
 of Andalus transformed to a heavenly garden. In a country where humanity was
-dying, trapped in barbarism, it became a torchbearer of Europe.
+dying, trapped in barbarism, it became a torchbearer for Europe.
 
 When the dark clouds of fear and barbarism dominated Europe, every house in
 Andalus was lit with lanterns of science and knowledge. When majority of the
@@ -26,13 +26,13 @@ house did not have a small library.
 
 The Umayyad era was the golden age in the history of Andalus. Even today, when
 a tourist visualizes the magnificence and splendor that is buried in the ruins
-of Cordova, Seville and Toledo, he enquires with amazement 'Was this that land
+of Cordova, Seville, and Toledo, he inquires with amazement "Was this that land
 where prosperity and progress left the ambassadors of Charlemagne awestruck?
 Is the modern-day Spain and the Andalus of the Arabs the same land which was a
 goldmine? The land where misery and poverty did not exist? The land whose
-trade and commerce was spread all the way to Russia, Iran and China? The land
+trade and commerce was spread all the way to Russia, Iran, and China? The land
 whose universities were renowned the world over and students of Aristotle and
-Plato sat at the feet of its scholars?'.
+Plato sat at the feet of its scholars?"
 
 The spirits of Andalus' historians, who maybe, each evening, wander around
 these deserted places, reply to us saying, "Yes! This Spain is the same
@@ -40,16 +40,16 @@ Andalus that belonged to the Arabs, whose power and majesty has become a
 legend of the past. This Rock of Gibraltar is the same one where Tariq bin
 Ziyad's ships had anchored. Cordova is that very city where the pompous courts
 of Abdul Rahman III would leave the ambassador of great emperors absolutely
-awestruck. This Andalus is the same, however, the nation whose sweat and blood
+awestruck. This Andalus is the same. However, the nation whose sweat and blood
 bestowed life and beauty to its ashes has been obliterated. Buried beneath
 these ruins lie the bodies of the glorious builders who made this country a
-tower of light for the rest of Europe".
+tower of light for the rest of Europe."
 
 World history depicts the rise and fall of nations but the rise and fall of
 the Arab conquerors is the most interesting from which a lot could be learned.
-That sun, that moon and those stars who, since the creation of Adam till today
+That sun, that moon, and those stars who, since the creation of Adam till today
 must have witnessed with their unblinking eyes thousands of caravans on the
-paths of progress and degenerations. If these celestial bodies have a heart,
+paths of progress and degenerations. If these celestial bodies had a heart,
 then, the legend of the rise and fall of the Arab rulers, would certainly be
 engraved on them.
 
@@ -65,9 +65,9 @@ north, the Umayyad emperors would still treat them with generosity.
 
 After the decline of the Umayyad dynasty in the 5th century Hijri, the Muslims
 of Andalus had reached the last stage of divergence and decentralization. The
-great Andalus empire got divided into about twenty states. Alponso VI took
+great Andalus empire was divided into about twenty states. Alponso VI took
 advantage of this dissent and united the northern Christian states of Asturia,
-Leon and Castile to form an empire.
+Leon, and Castile to form an empire.
 
 The autocratic rulers of Andalus, called upon Alphonso for assistance whenever
 they lost to their neighbors. He would demand a price for his assistance to
@@ -82,17 +82,16 @@ mighty claws of the Christians. However, he could not unite the imprudent
 Muslims strategically. When all his strategies and efforts failed, he captured
 Andalus and made it a province of his African empire.
 
-The African dynasty of Al-Moravid that was founed by Yusuf bin Tashfeen could
-not be established for long. As soon as the nobles of Andalus sensed the
-weakness of the rule, they quickly seceded and every major city became a
-separate kingdom. At this critical stage, Abdul Momin tried to support this
-falling building of the Muslims rule by defeating the conceited rulers of
-Andalus' small kingdoms and laid the foundation of the Al-Mohad dynasty.
+The African dynasty of Al-Moravid that was founded by Yusuf bin Tashfeen would
+not remain for long. As soon as the nobles of Andalus sensed the weakness of
+the rule, they quickly seceded and every major city became a separate kingdom.
+At this critical stage, Abdul Momin tried to support this falling building of
+the Muslims rule by defeating the conceited rulers of Andalus' small kingdoms
+and laid the foundation of the Al-Mohad dynasty.
 
 The Mohads repeatedly defeated the Christian attackers of the north. But
-unfortunately, they governed being based in Africa. Therefore, their hold on
-Andalus gradually became weakened and the conspiracies of the emirs of Andalus
-increased.
+unfortunately, they governed from Africa. Therefore, their hold on Andalus
+gradually weakened and the conspiracies of the emirs of Andalus increased.
 
 In 1212, the Christians defeated the remaining Mohad armies at the battle of
 Las Navas de Tolosa and after this several Muslims cities were captured by
@@ -100,7 +99,7 @@ them, one after the other.
 
 From 1238 to 1265 the Muslims fought each other and during this time Ferdinand
 III, the Christian king of Castile, and rulers of Aragon united themselves and
-Cordova, Helenbesia, Seville and Mercia were conquered. For the Muslims, the
+Cordova, Helenbesia, Seville, and Mercia were conquered. For the Muslims, the
 capture of Cordova and Seville by the Christians was no less than the capture
 of Baghdad by the hands of the Tartars.
 
@@ -114,7 +113,7 @@ the Muslims emirs which subdued the mightiest powers was now placed back in
 its scabbard.
 
 For about one and a half century the Kingdom of Granada was a target of much
-internal squabbles among its selfish emirs and its border areas were a subject
+internal squabbles among its selfish emirs and its border areas were subject
 to much looting, plunder and killings at the hands of Christians. At times,
 the rulers of Granada defeated the Christians on a number of occasions but
 Granada was deprived of an ambitious personality whose leadership would have
@@ -124,8 +123,8 @@ If an emir would be victorious against the Christians, the general public
 would rally around him for a period of time but after a while this kingdom
 would become an arena of jealousy and envy.
 
-Inspite of the circumstances, Granada was the most advanced city in the fields
-of arts and sciences not only in Europe but also in the entire world. Its
+Despite the circumstances, Granada was the most advanced city in the fields of
+arts and sciences not only in Europe but also in the entire world. Its
 builders too were renowned around the world. Students from far and wide sought
 education in its universities and Granada's surgeons and physicians were
 second to none.
@@ -136,18 +135,20 @@ strays away from this path, then, these very arts and sciences become an
 addictive drug and the deficiency of its actions is not even pricked by its
 conscience.
 
+<!-- First sentence of following paragraph -->
+
 In the 9th century Hijri and towards the end of the 15th century A.D., signs
 of Granada's degeneration were becoming apparent quite rapidly. With the
 matrimonial union of Ferdinand V and Isabella, two Christian kingdoms of
 Aragon and Castile were united and the intense discord among the Muslims
 proved to be the last blow to the glimmering flame of the Muslims.
 
-Badr bin Mughira was called the "Frontier Falcon" by the emirs and people of
+Badr bin Mughira was called the _Frontier Falcon_ by the emirs and people of
 Castile. Because of his unprecedented victories against the attacking
 Christian troops, he became famously known by this title in Granada too. This
-sixty miles long and forty miles wide mountain and forest was a home to these
+sixty miles long and forty miles wide mountain and forest was home to these
 independent individuals who were neutral towards Granada but continuously at
-war with the neighboring Christian kingdoms. Before Badr his father Mughira
+war with the neighboring Christian kingdoms. Before Badr, his father Mughira
 was the emir of the region, who had captured and annexed a number of Christian
 regions into his kingdom. When the rulers of Granada tried to make him their
 subject, he told the royal emissary that if the ruler of Granada stopped
@@ -174,10 +175,10 @@ smaller independent region of Mughira a greater threat. He also felt that to
 conquer this region he would have to sacrifice a substantial amount of his
 army.
 
-Assessing the upcoming threat, Mughira started preparing mujāhidīn groups
+Assessing the upcoming threat, Mughira started preparing _mujāhidīn_ groups
 from the length and breadth of Andalus. He delegated the protection of the
 independent areas to his subordinate and guised as an ordinary merchant,
-toured major cities of Andalus. Muslims of Cordova, Seville and other cities,
+toured major cities of Andalus. Muslims of Cordova, Seville, and other cities,
 whose souls were suffocating in the chains of slavery committed themselves to
 taking part in _jihād_ under him and in due time would raise the flag of revolt
 in their respective cities. Hence, Mughira realized that after living under
@@ -186,7 +187,7 @@ here who would be willing to live and die for Islam. The techniques adopted by
 their Christian rulers to make Muslims strangers to their own religion proved
 to be successful to a certain extent and now under Ferdinand different ways
 were aggressively enforced to apostatize them. Muslim schools were banned from
-teaching Arabic. They were not allowed to wear Arabic attire. They were forced
+teaching Arabic. They were not allowed to wear Arab attire. They were forced
 to send their children to Christian schools. There were some concessions to
 those who had converted to Christianity. However, Muslims who opted to stay
 were ordered to wear a special symbol. They were mocked in the markets. This
@@ -218,10 +219,9 @@ One day Mughira was sitting in a room of an old fort in the forest. A soldier
 came in and reported that a few soldiers have arrested and brought a stranger
 from the border areas, who says that he has brought an important message from
 Toledo. To further his activities, Mughira had not gotten a chance to visit
-Toledo yet. At his signal the stranger was presented before him. At this point
-in time Badr was fourteen years old and was sitting close to his father. The
-stranger entered the room, looked around and said, "I would like to talk to
-you in private."
+Toledo yet. At his signal the stranger was presented before him. Badr was then
+fourteen years old and sitting close to his father. The stranger entered the
+room, looked around and said, "I would like to talk to you in private."
 
 Mughira gestured the soldier to leave and said, "Okay, speak up!"
 
@@ -249,13 +249,13 @@ Late into the night, Mughira moved out from his bed and began disguising
 himself as a monk. A soldier came into the room and informed him that his
 horse was ready.
 
-"I am coming", said Mughira.
+"I am coming," said Mughira.
 
 The soldier left the room. For a while, Mughira stood by his son's bed and in
 the candle light kept looking at his innocent face. Finally, he bowed down and
 kissed his forehead. Suddenly, Badr took a shiver, a little sneeze and after a
-while opened his eyes. "Where am I?", he asked in a petrified voice and then
-screamed, "Father!".
+while opened his eyes. "Where am I?" he asked in a petrified voice and then
+screamed, "Father!"
 
 He embraced Mughira and said, "Father! Father! I will not let you go alone. I
 will come along with you."
@@ -263,22 +263,22 @@ will come along with you."
 "What is the matter, son?", Mughira asked while embracing him.
 
 "Father, I had a really bad nightmare. I saw that a pack of wolves was
-"following us. You were left behind. They captured you. I wanted to return to
-"save you but you were saying, 'Badr, you should run away. You should run
-"away.' Father! If you would like to go then I will also come along."
+following us. You were left behind. They captured you. I wanted to return to
+save you but you were saying, 'Badr, you should run away. You should run
+away.' Father! If you would like to go then I will also come along."
 
-"No, son!", Mughira said in a grieving tone.
+"No, son!" Mughira said in a grieving tone.
 
 Badr said, "Father! Last year you had promised that you will take me along if
 you went to Granada."
 
 "But, son, I am not going to Granada. I am going to Toledo and you could face
-"a lot of dangers there with me."
+a lot of dangers there with me."
 
 "Father! I am not a coward."
 
 "Son, if I were to go into the battlefield, I would have surely taken you
-"along with me. But it's better that I go alone to Toledo."
+along with me. But it's better that I go alone to Toledo."
 
 "But I am sure that you won't go there alone."
 
@@ -289,10 +289,10 @@ you went to Granada."
 Mughira thoughtfully said, "Why don't you interpret your dream in this way
 that if you were to come along, then, we would have to face the wolves."
 
-Badr thought and said, "Father, when will you return?"
+Badr thought for a moment and then said, "Father, when will you return?"
 
 Mughira replied, "I shall come back before the moon of the next month. But, if
-I am delayed for any reason, then, don't come running after me. In my absence,
+I am delayed for any reason, then don't come running after me. In my absence,
 you will be the caretaker of this forest. I shall leave with the trust that
 you will not be careless towards your duties. If you come after me, I will
 think that you have not obeyed my orders."
@@ -305,21 +305,21 @@ they suggested that before a spy could be sent, it was important to establish
 the identity of the person who had sent the invitation. Badr pulled out that
 letter from a pile of documents inside a cabinet which invited his father to
 Toledo but the writer gave a number of reasons to conceal his identity and
-wrote, "If you think hard you will know who I am. I had met you in a rest
+wrote, "If you think hard, you will know who I am. I had met you in a rest
 house in Seville. It was unfortunate that you did not reveal your name to me
-before climbing on to your horse and I did not get a chance to speak otherwise
-I might have proved that our goals are not different. Before I would say
-anything at all, you galloped away. I did not follow you believing that you
-might become suspicious of me. If you were to come to Toledo again, the way to
-find me is that there is a rest house right outside the eastern gate of the
-city. The owner of the rest house is a short man whose couple of teeth of the
-lower jaw are broken. You can go to him and say that you want to meet a lost
-friend. He will bring you to me. Before you meet me do not disclose your name
-or objective at any point in time."
+before climbing on to your horse and I did not get a chance to speak.
+Otherwise, I might have proved that our goals were not different. Before I
+would say anything at all, you galloped away. I did not follow you believing
+that you might become suspicious of me. If you were to come to Toledo again,
+the way to find me is that there is a rest house right outside the eastern
+gate of the city. The owner of the rest house is a short man whose couple of
+teeth of the lower jaw are broken. You can go to him and say that you want to
+meet a lost friend. He will bring you to me. Before you meet me do not
+disclose your name or objective at any time."
 
 This letter was reassuring yet worrying. So, Badr's companions sent a clever
-spy to Toledo. But before his return an emissary of a secret organization of
-Cordova came and gave the devastating news that Mughira was hanged publically
+spy to Toledo. But before his return, an emissary of a secret organization of
+Cordova came and gave the devastating news that Mughira was hanged publicly
 at a square in Toledo. The secret organization was told about this incident by
 a few traders coming from Toledo.
 
@@ -373,7 +373,7 @@ their victorious general. When the darkness of the evening was falling upon
 the reddish sky, a soldier at the bridge of the gate exclaimed, "They have
 arrived! Long live Count Santiago!"
 
-Cries of "Long live Count Santiago" were raised everywhere. Church bells were
+Cries of "Long live Count Santiago!" were raised everywhere. Church bells were
 rung. Thousands of men and women gathered outside the city gate. The city's
 bishop stood among them with a garland of flowers. As the sound of the
 galloping horses came close, the excitement of the cheering people grew.
@@ -383,14 +383,14 @@ clouds of dust. He reached near the gate of the city, halted his horse and
 started looking back. After a while, about 2,000 horsemen gathered in front of
 the gate. The wave of shock fell over the city dwellers. Being apparently very
 worried they started dispersing around. The white-masked rider roared the
-shout of Takbeer and the atmosphere resonated with the sound of "Allahu
-Akbar".
+shout of _Takbeer_ and the atmosphere resonated with the sound of "Allahu
+Akbar!"
 
 The bishop could not believe his ears and carefully examined the flag of the
 white-masked rider. Instead of the cross, the flag sported a crescent. The
 garland of flowers fell off his shivering hands.
 
-The people were listening to the roars of "Allahu Akbar". They also saw that
+The people were listening to the roars of "Allahu Akbar." They also saw that
 the leader of the attackers had a crescent on his fluttering flag but before
 they could believe their eyes and ears and turn into action, Badr bin
 Mughira's 2,000 diehard warriors had entered the city through the wide open
@@ -398,14 +398,14 @@ gate. After a while, a few of Count Santiago's soldiers, who had escaped
 through the forest and headed towards the city, learned from fleeing city
 dwellers that the city had been captured by the Muslims.
 
-Before midnight, Badr bin Mughira had taken away all the gold, silver, ration
+Before midnight, Badr bin Mughira had taken away all the gold, silver, ration,
 and several livestock as booty and left the city.
 
 After handing over the booty to 500 of his horsemen, he headed towards the
 nearby cities and villages.
 
 The next morning, when his fatigued troops were on their way back to their
-residence, they had several flocks of livestock, mules and donkeys loaded with
+residence, they had several flocks of livestock, mules, and donkeys loaded with
 booty in front of them.
 
 A night before the attack, Count Santiago could never had imagined that they
@@ -423,7 +423,7 @@ lethal that Mughira.
 He spent the entire night restlessly, tossing and turning in bed. The food
 that his men had presented lay untouched. Because of his position and stature,
 the guards dealt with him with respect and dignity. When someone tried to say
-a few words of consolation, he would abruptly ask, "Who was the falcon? Where
+a few words of consolation, he would abruptly ask, "Who was the Falcon? Where
 is he now? I would like to see him. I swear by the Holy Mary, he is not a
 human." At times, in a fit of rage he would yell, "How will I ever face them
 on my return? Why don't you just kill me?"
@@ -434,10 +434,10 @@ and neither was he harmed. However, when he tried to take out his dagger to
 pierce it in his own chest, a soldier caught hold of his hands. On raising an
 alarm, a few other soldiers unarmed him by force while Badr's lieutenant
 assigned a couple of guards for his security. He said, "It is our duty to
-ensure his safety until our leader returns".
+ensure his safety until our leader returns."
 
 On Badr's return a little before noon the next day, the shouts of "Allahu
-Akbar" resonated in the silence of the forest.
+Akbar!" resonated in the silence of the forest.
 
 After spending a restless night, Count Santiago came out of his tent and lay
 in the lush green grass in a deep sleep, under the cool shade of a tree.
@@ -474,18 +474,18 @@ reason for letting them go without taking ransom."
 "At least 50,000."
 
 "We have gained a hundred times more than that. Go and escort them across the
-"border. After a few years when their treasury will be replenished then we
-"will invite them here again. Now my companions and I need to take some rest."
+border. After a few years when their treasury will be replenished then we
+will invite them here again. Now my companions and I need to take some rest."
 
 Saying this Badr proceeded towards the fort.
 
-After this victory, the title "The Frontier Falcon" given by Santiago
+After this victory, the title _The Frontier Falcon_ given by Santiago
 gradually became common to all. Several fables of bravery became associated
 with this name. Superstitious Christians used to say that the Frontier Falcon
 was a supernatural human who has been spotted fighting simultaneously in the
 forest of the rebels, in the Christian dwelling that are several kilometers
 away and in the cities. His legend travelled from the Kingdom of Ferdinand and
-reached Granada. The Islamic scholars termed him a Ghazi. Poets penned
+reached Granada. The Islamic scholars termed him a _Ghāzī_. Poets penned
 fictitious tales of love and romance with princesses of high pedigree.
 Intellectuals threw light on various aspects of his personality.
 
@@ -493,7 +493,7 @@ Shepherds and farmers from afar, returning after a laborious day, would become
 the center of attraction of the people. They would spread stories of having
 seen the Frontier Falcon at a certain place at a certain point in time.
 
-Santiago was one of Ferdinand's favorite warrior but after his crushing
+Santiago was one of Ferdinand's favorite warriors but after his crushing
 defeat, Ferdinand had no desire to make an immediate move against his new and
 intriguing enemy. Before sending any new troops to the other side of the
 border, Ferdinand thought first of fortifying his border entrenchments. After
@@ -523,13 +523,13 @@ Badr.
 
 The rulers of Cordova and Seville had remained under his treatment. When the
 Crown Prince of Castile injured himself severely after falling off his horse,
-Ferdinand sent for him. On the Crown Prince's recover, Ferdinand and Isabella
+Ferdinand sent for him. On the Crown Prince's recovery, Ferdinand and Isabella
 offered him the post of Royal Physician but he refused and returned to
 Cordova. After two years, when he received a letter from Badr bin Mughira, he
-left his luxurious palace and gave priority to living with a mujahid in the
+left his luxurious palace and gave priority to living with a _mujāhid_ in the
 forest.
 
-Two months after the meeting with Al-Zefel, the ruler of Cordova, Abul Hassan,
+Two months after the meeting with Al-Zeghel, the ruler of Cordova, Abul Hassan,
 issued a secret decree and gave the custody of some of Cordova's bordering
 areas that were connected to the Frontier Falcon's mountains and forest, to
 Badr bin Mughira. Badr bin Mughira did not get himself involved in the affairs
