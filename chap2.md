@@ -538,14 +538,14 @@ responsibilities with the border administrator while he took over the
 administration of check posts and construction of new defensive outposts.
 
 Apart from a few trustworthy army officers, no one knew that their commanding
-general was the very same youth who was remembered by the title of "The
-Frontier Falcon" or "Shaheen". He was referred by these title not only by the
+general was the very same youth who was remembered by the title of _The
+Frontier Falcon_ or _Shaheen_. He was referred by these title not only by the
 people of Andalus but also by the Muslims of Granada. One day, the border
 administrator announced to the soldiers that, on his request, the Frontier
 Falcon had promised to give a few days' training to them in his forest.
 
 "I will send you in batches of two hundred, one after the other. I am sure his
-"training will prove beneficial for you."
+training will prove beneficial for you."
 
 The troops were more excited to have a look at the Shaheen of the forest than
 to learn new war tactics. Badr bin Mughira's lieutenant, Mansour bin Ahmed,
@@ -557,7 +557,7 @@ Ferdinand did raise his concerns over the entrenchment along the Granadian
 border but Abul Hassan sent a reply saying that these preparations have been
 done to protect against any attack by the Frontier Falcon. Besides Abul
 Hassan's reply, Ferdinand was also satisfied because apart from the normal
-formalities, there were no new restrictions to the access of the of the
-kingdom's cities from the border. As usual, traders from Cordova, Castile and
+formalities, there were no new restrictions on to the access of the of the
+kingdom's cities from the border. As usual, traders from Cordova, Castile, and
 other cities could pass the border to the cities of Granada on showing a
 transit document issued by Ferdinand's rulers.
