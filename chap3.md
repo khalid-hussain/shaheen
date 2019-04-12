@@ -13,17 +13,17 @@ concern."
 
 The King replied, "Oh Queen! I'm not concerned about the tribute. I spend more
 on maintaining the border check post than the tribute I receive from Abul
-Hassan but his refusal to paying the tribute shows that he has confidence in
-his strength. Unfortunately, there is no other claimant to the throne of
-Granada. So far, more than our swords, the primary guarantee for our successes
-was the disunity among the Muslims."
+Hassan but his refusal to pay the tribute shows that he has confidence in his
+strength. Unfortunately, there is no other claimant to the throne of Granada.
+So far, more than our swords, the primary guarantee for our successes was the
+disunity among the Muslims."
 
-The Queen said, "Even if the Muslims of Granada have united, I don't think
-that they would raise their head against us. I am sure that they have not
-forgotten what happened to the rebels of Cordova, Toledo and Seville."
+The Queen said, "Even if the Muslims of Granada unite, I don't think that they
+would rise against us. I am sure that they have not forgotten what happened to
+the rebels of Cordova, Toledo, and Seville."
 
 The King said, "Queen, you are talking about those times when there was much
-infighting between the Hispanians, Berbers and Arab-Muslims. Our ancestors had
+infighting between the Hispanians, Berbers, and Arab-Muslims. Our ancestors had
 worked extremely hard to take advantage of their disunity which helped them in
 capturing three regions of Spain. Otherwise, I am not ready to believe that
 had they been united as one like us, we could not have gained victory over
@@ -246,7 +246,7 @@ but, I believe his territory is quite far from here."
 "His territory is quite far from here but his comrades have snatched away our
 horses three times."
 
-"When?" Angela enquired.
+"When?" Angela inquired.
 
 "Last year. This year he has not focused on us but last year he had captured
 this fort too for a week." Angela asked, "So, you surely must have seen him.
@@ -255,7 +255,7 @@ What is he like?"
 "Well, he did not remove his mask in front of us but from the sound of his
 voice he didn't seem much of age."
 
-Maria asked, "So, then, how did you remove him from the fort?"
+Maria, Angela's mother, asked, "So, then, how did you remove him from the fort?"
 
 "Well, he left on his own will. He only needed our surplus grain and horses."
 
