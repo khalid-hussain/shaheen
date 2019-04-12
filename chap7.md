@@ -11,7 +11,7 @@ Granada army, who received him a station before Granada on behalf of the King,
 also accompanied him. The King of Granada, Abul Hassan, his Crown Prince, Abu
 Abdullah Mohammed and the King's brother Abdullah Al-Zeghel stood on the tower
 of the palace's gate witnessing his grand procession. The enthusiasm of the
-people was a reminder of the past when the mujahedeen of Andalus would return
+people was a reminder of the past when the _mujāhidīn_ of Andalus would return
 after glorious victories in the north.
 
 People were showering flowers from rooftops. Badr bin Mughira was dressed in
