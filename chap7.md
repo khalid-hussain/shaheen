@@ -3,6 +3,8 @@
 
 # The Nation and its Warrior
 
+<!-- TODO nxt para -->
+
 The Frontier Falcon entered Granada with a thousand troops. News of his recent
 victory had spread to every city of the Sultanate. Aspiring for a long time,
 the people of Granada finally got a chance to see him. After a long time, they
@@ -18,11 +20,11 @@ People were showering flowers from rooftops. Badr bin Mughira was dressed in
 his usual white robe. But today he didn't have his face covered. He was
 flanked by Musa on his right and Al-Zaghairi on his left. Another great
 warrior, Naeem Ridwan, held the reins of his horse and they all were led by a
-mujahid holding the Frontier Falcon's flag bearing a crescent.
+_mujāhid_ holding The Frontier Falcon's flag bearing a crescent.
 
 Crushing the flowers beneath their feet, this procession stopped at the gate
 of the fort. Abul Hassan looked at Al-Zeghel, and trying to fight back tears
-of joy said, "I always believed that he's one of us." Then he addressed Abu
+of joy said, "I always believed that he was one of us." Then he addressed Abu
 Abdullah, "Son, you should have gone out for his reception."
 
 "Me?" Abu Abdullah said in amazement.
@@ -32,7 +34,7 @@ Abdullah, "Son, you should have gone out for his reception."
 "But what about the honor of the royal household?"
 
 Abul Hassan said, "The honor of the royal household has always been indebted
-to swords of such mujahids."
+to swords of such _mujāhidīn_."
 
 Al-Zeghel said, "You proceed to the court. I will go out to personally escort
 him there myself."
@@ -46,7 +48,7 @@ procession at the gate."
 
 The people stood around Badr bin Mughira in front of the gate of the fort,
 raising thundering slogans. Musa moved forward on his horse clearing the way.
-However, before the procession could move forward the Administrator of the
+However, before the procession could move forward, the Administrator of the
 Royal Court came running out, reached close to Musa and said, "It's the royal
 order that the honorable guest should be stopped here for a while."
 
@@ -60,7 +62,7 @@ Mughira jumped off his horse.
 In the meantime, Abul Hassan had approached close to him. Instead of shaking
 his hand, he hugged him and put the garland of flowers around his neck. He
 then took the flag from the flag bearer and after kissing it, said, "Musa!
-Give the good news to the people of Granada that from today the Frontier
+Give the good news to the people of Granada that from today, The Frontier
 Falcon's flag shall flutter over our palace. Our flags have rotted. Badr bin
 Mughira has brought us a new flag. Our swords were rusted. Nature has given us
 someone who would give them a new shimmer. We are thankful that the honorable
@@ -68,75 +70,76 @@ guest has obliged us with his presence."
 
 Musa climbed the stairs to address the crowd. The people gestured at each
 other to maintain silence. They considered Musa to be Granada's spokesman.
-When he raised his hand the people looked towards him dumbfounded. Musa began
+When he raised his hand, the people looked towards him dumbfounded. Musa began
 the speech:
 
-"People of Granada! Today you have among you that great mujahid, who has
+"People of Granada! Today you have among you that great _mujāhid_, who has
 written his name in the history of Andalus with the tip of his sword, who has
 defeated Ferdinand's tiny-hearted army several times with a handful of
-mujāhidīn. Badr bin Mughira, your Frontier Falcon, has come to you with a
+_mujāhidīn_. Badr bin Mughira, your Frontier Falcon, has come to you with a
 message and that message is that if a nation is willing to bathe in blood and
 is ready to jump into fire for its honor and liberty, then, no power on earth
 can defeat it."
 
-"Flags of our greatness has fallen in Cordova, Seville and Toledo because we
-had chosen for ourselves that path that takes a people from its zenith to its
-disgraceful fall. Our ancestors who had garnished those cities with their
-blood have been washed away by our tears. O Muslims! If you do not learn your
-lesson from the plight of the people of Cordova then remember that the
+"Flags of our greatness have fallen in Cordova, Seville, and Toledo because we
+had chosen for ourselves the path that takes a people from their zenith to
+their disgraceful fall. Our ancestors who had garnished those cities with
+their blood have been washed away by our tears. O Muslims! If you do not learn
+your lesson from the plight of the people of Cordova, then remember that the
 historians of the future will search for your legends only in the scattered
 documents found in the ruins of the past."
 
-The great sultanates of Cordova and Seville were not grabbed by some forces of
-the enemy. We have lost them with our own hands. Our secret of progress and
-prosperity was on the highway shown to us by Mohammed Mustafa (PBUH). Taking
-that highway, we advanced from the desert of Arabia to the pastures of
-Hispania. Moving on this highway we crushed the crowns of Caesar and Kisra
-beneath our feet. This highway took us to the sizzling deserts of Africa and
-to the snow-covered peaks of the Alborz Mountains."
+"The great sultanates of Cordova and Seville were not grabbed by some forces
+of the enemy. We have lost them with our own hands. The secret of progress and
+prosperity was on the highway shown to us by Muḥammad al-Muṣṭafā (Peace and
+blessings of Allāh be upon him). Taking that highway, we advanced from the
+desert of Arabia to the pastures of Hispania. Moving on this highway we
+crushed the crowns of Caesar and Kisra beneath our feet. This highway took us
+to the sizzling deserts of Africa and to the snow-covered peaks of the Alborz
+Mountains."
 
 "Our degeneration began once we had left this highway. Islam had given us a
 chance to open the gates of the rewards of destiny but we shut this door of
-mercy with our own hands. Islam had given us the command to fight in the path
-of Allah but we fought amongst ourselves. Islam taught us to be united but we
-divided ourselves in groups and parties. Islam broke the idols of racism and
-laid the foundation of equality of brotherhood where the Arab and non-Arab
-were treated at par but we revived this idol in our sleeves. We left the Rope
-of God and bowed to the idols of nationalism and racism. In every corner of
-the world swords of Muslims of one race and nation clashed with swords of
-Muslims of another race and nation. Arab and non-Arab slit the throats of each
-other. Turks and Persians competed against each other and the rock of Islam
-reduced to a heap of sand. History is a witness that our collective strength
-was a flood that would bring down any wall of resistance. But when the evil of
-racism arose amongst us, we faced the worst of defeats by the lowest of
-nations. Even then we did not take heed from these events."
+mercy with our own hands. Islam commanded us to fight in the path of Allah but
+we fought amongst ourselves. Islam taught us to be united but we divided
+ourselves into groups and parties. Islam broke the idols of racism and laid
+the foundation of equality of brotherhood where the Arab and non-Arab were
+treated at par but we revived this idol in our sleeves. We left the Rope of
+God and bowed to the idols of nationalism and racism. In every corner of the
+world swords of Muslims of one race and nation clashed with swords of Muslims
+of another race and nation. Arab and non-Arab slit the throats of each other.
+Turks and Persians competed against each other and the rock of Islam reduced
+to a heap of sand. History is witness that our collective strength was a flood
+that would bring down any wall of resistance. But when the evil of racism
+arose amongst us, we faced the worst of defeats by the lowest of nations. Even
+then we did not take heed from these events."
 
-"Muslims of Granada! I ask you, after ruling for centuries weren't the other
-cities of Cordova, Seville and Andalus grabbed from our hands after the evil
+"Muslims of Granada! I ask you, after ruling for centuries, weren't the other
+cities of Cordova, Seville, and Andalus grabbed from our hands after the evil
 of racism spread amongst us? Unfortunately, when the armies of the Christians
-were besieging these cities, the Muslims of Andalus – Arabs, Berbers and
-Hispanian Muslims – were trying to slit each other's throat. One by one the
-cities of Andalus were lost by us. Muslims were enslaved by those whom they
-had governed for centuries. Today, only a small Sultanate of Granada remains
-under our control. This is our last citadel and the enemy is planning to
-conquer it but we have still not taken heed. Even today the evil of racism is
-within us. Even now we are not ready to wipe out the differences of being
-Hispanian, Arabs and non-Arabs."
+were besieging these cities, the Muslims of Andalus – Arabs, Berbers, and
+Hispanians – were trying to slit each other's throat. One by one the cities of
+Andalus were lost by us. Muslims were enslaved by those whom they had governed
+for centuries. Today, only a small sultanate, that of Granada, remains under
+our control. This is our last citadel and the enemy is planning to conquer it
+but we have still not taken heed. Even today the evil of racism is within us.
+Even now we are not ready to wipe out the differences of being Hispanian,
+Arabs, and non-Arabs."
 
-"Those Muslims living under the slavery of Christians, are tolerating the worst
-of tortures with the hope that the Muslims of Cordova will come to their
+"Those Muslims living under the slavery of Christians, are tolerating the
+worst of tortures with the hope that the Muslims of Cordova will come to their
 rescue. You are their last support but, God forbid, if you are not able to
-defend even yourselves then history of the Muslims of Andalus would become a
-sorry legend for the generations to come and tourists would look at these
-ruined buildings and enquire, 'Was it really the Muslims who built these
+defend even yourselves, then the history of the Muslims of Andalus would
+become a sorry legend for the generations to come and tourists would look at
+these ruined buildings and inquire, 'Was it really the Muslims who built these
 splendid buildings?'"
 
 "Ferdinand has demanded tribute from us and we have replied to him saying that
 only swords are made in our mint factory. And we have given him this reply
-with the confidence that our swords can defend our freedom."
+with confidence that our swords can defend our freedom."
 
 After Musa's speech the people started shouting, saying that they wanted to
-hear something from the Frontier Falcon. Abut Hassan looked at Badr bin
+hear something from The Frontier Falcon. Abul Hassan looked at Badr bin
 Mughira and said, "Please do say a few words. Never has such a large crowd
 gathered in front of my palace."
 
@@ -151,7 +154,7 @@ began his speech reluctantly:
 believe there is no need for another one and maybe you too don't need any
 other ruckus to wake you up from your sleep after Israfeel has blown the horn.
 I strongly believe that if a people who are in a state of degeneration can
-produce a mujahid like Musa, then, no power can wipe them out. Whomever you
+produce a _mujāhid_ like Musa, then, no power can wipe them out. Whomever you
 consider your leader, the important thing is to answer to his call with a deep
 conviction in your hearts. Do whatever he commands you to do. Remember! Even
 the best of physicians cannot help a patient who is bent on his fatality."
@@ -162,50 +165,51 @@ authority have been razed. After ruling this country for eight hundred years,
 thousands of our people are being grinded in the mill of an enemy that neither
 has compassion nor justice for us in their hearts. Today, Granada remains our
 last citadel and if we were to repeat the mistakes committed by our brethren
-in Cordova, Seville and Toledo, then, I fear that even this region will be
+in Cordova, Seville, and Toledo, then, I fear that even this region will be
 taken away from us someday. When the Christian nobles were getting united
 against us, our nobles were squabbling with each other. One infidel was
 embracing another infidel but one Muslim was slitting the throat of another
-Muslim.Our enemy proved to us that all infidels are one but we could not prove
-that if all infidels are one then all of Islam is also one. The enthusiasm of
-victory united them but even the fear of annihilation could not unite us. The
-Moroccan Muslim became an enemy of the Hispanian Muslim and the Berber Muslim
-became thirsty for the blood of the Andalusian Muslim. The eventual result was
-that one after the other our cities fell out of our hands."
+Muslim. Our enemy proved to us that all infidels are one but we could not
+prove that if all infidels are one then all of Islam is also one. The
+enthusiasm of victory united them but even the fear of annihilation could not
+unite us. The Moroccan Muslim became an enemy of the Hispanian Muslim and the
+Berber Muslim became thirsty for the blood of the Andalusian Muslim. The
+eventual result was that one after another, our cities fell out of our
+hands."
 
-"Once again the enemies of Islam are uniting. Now their eyes are on Granada.
-God forbid, if we're not even able to defend Granada then, merely the name of
+"Once again the enemies of Islam are uniting. Their eyes are now on Granada.
+God forbid, if we're not even able to defend Granada, then merely the name of
 Muslims will remain in Andalus. Abu Musa has already told you all these
 things. I just want to say one thing to you and that is that now instead of
 Alphonso, it is Ferdinand who wants to talk to us with swords and we have to
 prove that even today the Muslims know how to communicate in the language of
 the swords. People of Granada! A time comes in the lives of a nation when the
 language of the sword becomes more appropriate than that of the pen and for
-you that time has arrived."
+you, that time has arrived."
 
 After Badr bin Mughira's speech, when the crowd was cheering, Abul Hassan
 said, "I am desperate to talk to you. Abu Musa will bring you to me after
 this procession is over."
 
-Ten days after the arrival of the Frontier Falcon, the citizens of Cordova
-came out of the city in their thousands and bid farewell to the army of Abul
-Hassan. After several years the army of Cordova was not setting out to crush a
-rebellion of their Sutanate's amir but was leaving to wage war on a front
-against an enemy. After several years, Muslim soldiers and nobles of
-Hispanian, Berber and Arab descent had assembled under one flag.
+Ten days after the arrival of The Frontier Falcon, the citizens of Cordova
+came out of the city in the thousands and bid farewell to the army of Abul
+Hassan. After many years, the army of Cordova was not setting out to crush a
+rebellion of their Sultanate's Emir, but was leaving to wage war on a front
+against an enemy. After many years, Muslim soldiers and nobles of
+Hispanian, Berber, and Arab descent had assembled under one flag.
 
 Abul Hassan first inspected the army before ordering them to depart and then
 said to Badr bin Mughira, "Badr! You have joined hearts that were broken. By
 God! If the Arab, Berber and Hispanian Muslims stood like this
 shoulder-to-shoulder, then, there is no reason for us to be ashamed in front
-of our forefathers on the Day of Judgment. Once again we will reach upto
+of our forefathers on the Day of Judgment. Once again we will reach up to
 France."
 
 Badr bin Mughira replied, "I'm sure till such time that your sword is out of
 the scabbard, there won't be any discord among the people of Granada. They
 needed a platform to have a united front. Until our swords keep clashing with
-the Christians, the attention of the Muslims won't be diverted to these
-domestic conflicts."
+the Christians, the attention of the Muslims won't be diverted to domestic
+conflicts."
 
 Al-Zeghel was adamant to support his brother in this mission but due to some
 circumstances he thought that it would be more appropriate to leave his
@@ -215,12 +219,12 @@ eye on his son.
 Abul Hassan did not include any foot soldiers in the contingent of this
 mission and charging with amazing speed reached the Valley of Lakka.
 
-Musa bin Abi Ghassan was his deputy commander while the charge of the
-storming units of the vanguard troops was given under Badr bin Mughira.
+Musa bin Abi Ghassan was his deputy commander while the charge of the storming
+units of the vanguard troops was given to Badr bin Mughira.
 
 After capturing a few border areas, Abul Hassan besieged Sakhra and when this
 news reached Cordova, a wave of jubilation spread among the people. The
-Christian ruler of Sakhra had the worst replutaion among Ferdinand's agents
+Christian ruler of Sakhra had the worst reputation among Ferdinand's agents
 because of the barbaric treatment he rendered to Muslims living under him. For
 a long time, the people of Granada were hearing the tales of horror from
 Muslims who would flee Sakhra to take refuge in Granada. After receiving the
@@ -235,12 +239,12 @@ minor resistance.
 
 The number of injured was quite low in this battle and on the orders of Abul
 Hassan they were transferred to a spacious room of the governor's palace.
-During the afternoon, Abul Hassan, Musa, Badr and a few other commanders
+During the afternoon, Abul Hassan, Musa, Badr, and a few other commanders
 visited the injured. The physicians taking care of the injured stood
 respectfully with heads bowed down but an individual who was engrossed in
 tying a bandage around the wounds of a soldier's head and neck did not budge
 from his place even when Abul Hassan came close to him. Even his attire was
-more that of a soldier's than of a physician or surgeon. His armor was
+more of a soldier's than that of a physician or surgeon. His armor was
 shining.
 
 Abul Hassan looked at the wounded for a second and called out to the Commander
@@ -292,7 +296,7 @@ Musa said in amazement, "Bashir bin Hassan! When did you arrive here?"
 He replied, "I reached here today."
 
 Musa said to Abul Hassan, "This is Bashir bin Hassan. He takes care of our
-falcon's wings."
+Falcon's wings."
 
 Abul Hassan enthusiastically shook Bashir bin Hassan's hands and said, "I have
 heard a lot of praises about you."
@@ -300,7 +304,7 @@ heard a lot of praises about you."
 Bashir bin Hassan kissed Abul Hassan's hand and said, "Please forgive me if I
 had shown disrespect. The soldier's condition was quite alarming."
 
-The Commander of the Medical Corps stood in a state of worry, guilt and
+The Commander of the Medical Corps stood in a state of worry, guilt, and
 helplessness. Bashir bin Hassan said to him, "I am guilty of unnecessarily
 interfering but this person lay unconscious in the market and the soldiers
 left him thinking he was dead. I saw signs of life in him and brought him
@@ -326,23 +330,23 @@ Abul Hassan said, "We apologize for not taking that into account. Please
 continue. Have a look at other injured soldiers and do meet me when you are
 done."
 
-Abul Hassan, Badr bin Mughira and Musa went away while Bashir bin Hassan
+Abul Hassan, Badr bin Mughira, and Musa went away while Bashir bin Hassan
 continued tending to the needs of the wounded. Like the other cities of
 Andalus, his fame had also reached Granada.
 
 Entire staff of the medical corps would feel honored talking to him, shaking
 his hand and in carrying out his orders. Another reason that they were
-impressed with him was because he was the Frontier Falcon's comrade.
+impressed with him was because he was The Frontier Falcon's comrade.
 
 The Commander of the Medical Corps still felt guilty about his behavior.
 Finally, he said to Bashir bin Hassan, "So far I have still not been able to
-find the right words to apologize to you with. I'm afraid you might have
-formed a negative opinion about me."
+find the right words for an apology. I'm afraid you might have formed a
+negative opinion about me."
 
 Bashir bin Hassan replied, "Don't worry. Had I been in your position, maybe, I
 would have dealt more harshly with a stranger."
 
-After a while the soldier whom Bashir bin Hassan had given treatment initially
+After a while, the soldier whom Bashir bin Hassan had given treatment initially
 started to groan in a state of being subconscious. Bashir bin Hassan took out
 a medicine from his bag and while pouring it out in a cup, said to a
 physician, "He will be conscious in a while. Let him have this as soon as he
@@ -397,7 +401,7 @@ were silly. There was one who said something sensible too."
 
 "And what was that?"
 
-"That the Frontier Falcon's horse is whiter than Mount Sierra Nevada's snow.
+"That The Frontier Falcon's horse is whiter than Mount Sierra Nevada's snow.
 When it walks it causes the land to shake. The shimmer of his sword blinds the
 eyes of the sun."
 
@@ -420,17 +424,17 @@ Bashir laughed.
 
 Badr said, "You are a clown."
 
-Bashir said, "She sends you her 'Salaam'."
+Bashir said, "She sends you her 'Salaam.'"
 
 "Lie!"
 
 "Okay my dear brother. Just think that she prays for your well-being."
 
-"I have no objection in believing that. Anyway stop joking. How is Abu Dawood?"
+"I have no objection in believing that. Anyway, stop joking. How is Abu Dawood?"
 
-He is very happy. On reaching Granada, Al-Zeghel has make him Prince Abu
+He is very happy. On reaching Granada, Al-Zeghel has made him Prince Abu
 Abdullah's special companion. He has been given a house in the Al-Hamra
-Palace. I think he'll make the prince become his fan in no time."
+Palace. I think he'll make the Prince become his fan in no time."
 
 The direction of their conversation changed as Musa approached. He informed
 them that Abul Hassan would like to see them.
