@@ -14,11 +14,9 @@ should be proper security for you."
 
 Bashir replied casually, "We never felt the need of soldiers to protect us."
 
-<!-- TODO next paragraph -->
-
-"I don't doubt your bravery but there should even be a great number of troops
-to guard this fort. Even if there is no danger of the Christians attacking
-suddenly you should be cautious."
+"Your bravery is not mere talk but the fort needs protection as well and a good
+number of troops need to be deployed here. We should take precautionary
+measures even if we don’t expect an impending attack from Christians."
 
 Badr bin Mughira replied, "Don't worry. You will find enough troops to deal
 with the danger, should the need arise. My stay in this fort is merely
@@ -112,9 +110,7 @@ Angela replied, "I don't care about that. I will try to pull him towards me
 and if I won't be able to bring him towards this side then going to his side
 would not be a problem for me."
 
-<!-- TODO today itself -->
-
-Rabia said, "Angela, assume that today itself a formal declaration of war
+Rabia said, "Angela, assume that this very day, a formal declaration of war
 takes place between the kingdoms of Granada and Castile, then don't you think
 all the doors would be closed between you and Bashir bin Hassan?"
 
