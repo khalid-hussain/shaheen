@@ -659,11 +659,12 @@ It's going to take us a while to reach Granada and he seems quite concerned
 for his family. So, I'm thinking to see him off from here. Can you help
 prepare for his journey?
 
-<!-- Check following paragraph -->
-
-Badr replied, "My men will take him to the other side of the border but there
+<!-- "My men will take him to the other side of the border but there
 is no guarantee that it is important that he speaks to no one about my
-activities once he reaches his destination."
+activities once he reaches his destination." -->
+
+Badr replied, "My men will take him to the other side of the border but it is
+important that he does not speak of my doings once he is there."
 
 Abu Dawood replied, "I would not guarantee anything on part of someone else
 but for him I can say this much that he has been with me for the past twenty
