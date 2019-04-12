@@ -557,7 +557,7 @@ Ferdinand did raise his concerns over the entrenchment along the Granadian
 border but Abul Hassan sent a reply saying that these preparations have been
 done to protect against any attack by the Frontier Falcon. Besides Abul
 Hassan's reply, Ferdinand was also satisfied because apart from the normal
-formalities, there were no new restrictions on to the access of the of the
-kingdom's cities from the border. As usual, traders from Cordova, Castile, and
-other cities could pass the border to the cities of Granada on showing a
-transit document issued by Ferdinand's rulers.
+formalities, there were no new restrictions on the access of the kingdom's
+cities from the border. As usual, traders from Cordova, Castile, and other
+cities could pass the border to the cities of Granada on showing a transit
+document issued by Ferdinand's rulers.
