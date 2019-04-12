@@ -6,7 +6,7 @@
 When Rabia woke up in the morning, her body was aching. She also had a
 headache. Light piercing through the windows was indicating that the time to
 perform the afternoon prayer was diminishing. She got up from her bed, quickly
-performed ablution and after praying, went, once again, into her bed.
+performed ablution and after praying, went, once again, to her bed.
 
 A day before, Bashir bin Hassan had taken-off her bandages and had advised
 that the remaining pain in her leg would go away once she starts to walk
@@ -14,7 +14,7 @@ around. And that it would do her good if she strolled outside, near the fort.
 Walking in fresh air would rejuvenate her feeble body.
 
 After seeing off the coachman, Abu Dawood came straight to the room and said,
-"Rabia! You are still asleep? Go out for a stroll with Angela. Maria, you too
+"Rabia! You are still asleep? Go out for a stroll with Angela. Maria, you too,
 go along with them."
 
 When Rabia didn't reply, Angela said, "Maybe Rabia is not feeling well Mother!
@@ -42,7 +42,7 @@ bin Hassan.
 Bashir looked at Rabia, felt her pulse and said, "I think you were not able to
 sleep last night."
 
-A shocked Abu Dawood, Maria and Angela looked at Rabia and understanding the
+A shocked Abu Dawood, Maria, and Angela looked at Rabia and understanding the
 reason for their concern, she said, "I think I overslept last night. When I
 woke up in the morning, my head was spinning."
 
@@ -54,8 +54,9 @@ Abu Dawood took a sigh of relief and said, "My wife's head is also hurting."
 
 After checking Maria's pulse, Bashir said, "Either you have not had much sleep
 or you might have overslept like Rabia. If you go out for walks in the morning
-and evening, then, you would not have this complain." "No, I really did not
-get much to sleep."
+and evening, then, you would not have this complain."
+
+"No, I really did not get much to sleep."
 
 Bashir said, "I will send the medication. Whenever you have difficulty
 sleeping, just have a tablet."
@@ -64,7 +65,7 @@ By evening, Rabia felt better. On Abu Dawood's insistence, she along with
 Angela and Maria went out for a stroll. She would still limp while walking.
 Outside the fort, Bashir was returning after attending a patient. On seeing
 them, he stopped his horse and said, "If you balance your weight on both your
-legs, you should be able to walk properly by day after tomorrow. Don't go out
+legs, you should be able to walk properly day after tomorrow. Don't go out
 very far today."
 
 Angela said, "Is it dangerous for us to go down the valley?"
@@ -75,7 +76,7 @@ Rabia was extremely restless for the next two days. She wanted to caution Badr
 bin Mughira of the approaching danger but she also knew that she won't be able
 to do this without putting her father in danger. After pondering and
 reflecting hard, she came up with the idea of meeting Badr bin Mughira. After
-enquiring from Bashir bin Hassan, she found out that he has gone to his
+inquiring from Bashir bin Hassan, she found out that he had gone to his
 residence in the forest and might not return for the next two days. There were
 four days left for Friday and after every prayer she kept supplicating for him
 not to return from his residence for a few more days.
@@ -131,28 +132,28 @@ come out for walks with you."
 Rabia's anxiety grew by the day. Just two days were left for Friday. After
 Rabia got up and offered her Fajr prayers, she saw that Angela stood all ready
 for the morning stroll after freshening up herself. Every night before
-sleeping Maria would promise that she too would come along for strolls but in
+sleeping, Maria would promise that she too would come along for strolls but in
 the morning when she would be awoken, she would make an excuse of either a
 headache or some other pain and would remain lying in bed. However, before
 they left, she would always instruct Angela not to wander off very far since
 these people were very dangerous.
 
-Today too Rabia and Angela dutifully tried to wake her up but instead of
+Today too, Rabia and Angela dutifully tried to wake her up but instead of
 waking up she tossed to the other side and slept. Angela felt a sigh of
 happiness and said, "Let's go, Rabia. Today we will cross the valley and climb
 the mountain."
 
-This was the same mountain where Bashir frequented during his walks. After
-passing through the dense tress of the valley and crossing the stream, Rabia
-could not keep up with Angela's fast pace while climbing the mountain. After
-climbing about a third of the mountain she said, "Angela, I'm exhausted. If
-you like, you can go all the way up. I'll wait for you over here."
+This was the same mountain Bashir frequented during his walks. After passing
+through the dense tress of the valley and crossing the stream, Rabia could not
+keep up with Angela's fast pace while climbing the mountain. After climbing
+about a third of the mountain she said, "Angela, I'm exhausted. If you like,
+you can go all the way up. I'll wait for you over here."
 
 "Very well! I'll be right back." Saying this Angela raced to the top. She had
 not seen Bashir on the way and she hoped that he would be at the top of the
 mountain. The pace of her heartbeat became faster with each step.
 
-Rabia kept looking at Angela while sitting on a rock. When she became out of
+Rabia kept looking at Angela while sitting on a rock. When she was out of
 sight, she started to look down at the breathtaking scenery of the valley.
 Suddenly, on her right, at a distance, she saw a rider. The horse was pacing
 slowly on its own while the rider was singing a song loudly in the Arabic
@@ -170,9 +171,9 @@ and so she started looking towards the tracks from behind the tree. What she
 had thought was indeed correct. The rider was none other than Badr bin
 Mughira. He wore a white turban on his head instead of a helmet.
 
-Despite the fact that the Frontier Falcon was heedless of her presence, Rabia
+Despite the fact that The Frontier Falcon was heedless of her presence, Rabia
 could not take more than a look at him. For a moment, mixed feelings of
-modesty, anxiety and veneration prevented her in coming to any decision.
+modesty, anxiety, and veneration prevented her in coming to any decision.
 However, after he passed by, she was stunned by the guilt of being negligent
 towards her duty. She said to herself, "Maybe I will never get another chance.
 Friday is only two days away."
@@ -180,11 +181,11 @@ Friday is only two days away."
 "Wait!" she said quickly while moving forward onto the tracks.
 
 But her soft voice, dipped in modesty, did not reach Badr bin Mughira's ears.
-He had moved a few meters away. Moments ago the ground that had held Rabia's
+He had moved a few meters away. Moments ago, the ground that had held Rabia's
 feet were now pushing her towards the stream. She advanced towards the stream.
 With every step she was gaining speed until she eventually started running.
 
-Please stop! Please stop! Please stop!" Her voice became louder as she gained
+"Please stop! Please stop! Please stop!" Her voice became louder as she gained
 speed. The rider turned around, looked and pulled the reins of his horse.
 Rabia's face blushed with modesty and once again her feet froze to the ground.
 
@@ -194,14 +195,14 @@ Rabia couldn't give a reply immediately. Badr pierced his lance in the ground,
 got off his horse and after a brief silence said, "You look worried. You
 called out to me."
 
-Rabia reluctantly raised her head and looked at him. Finding concern, sympathy
-and compassion in Badr's smile, she gradually stepped forwards and said in a
-meek voice, "I want to say something to you."
+Rabia reluctantly raised her head and looked at him. Finding concern,
+sympathy, and compassion in Badr's smile, she gradually stepped forwards and
+said in a meek voice, "I want to say something to you."
 
 "Please do...!"
 
 For the first time Badr had a close look at her. She was an embodiment of
-health, youth, beauty and chastity. And the red and white waves of shyness
+health, youth, beauty, and chastity. And the red and white waves of shyness
 apparent of her face could not but impress Badr.
 
 "You wanted to say something to me?" Badr questioned.
@@ -246,12 +247,12 @@ My soldiers will guard you all until you reach Granada."
 
 Rabia, appearing anxious, said, "You misunderstood me. I am not worried about
 myself at all. I was only thinking about you and not only me but every Muslim
-girl in Andalus and Castile prays for the safety of the Frontier Falcon.
+girl in Andalus and Castile prays for the safety of The Frontier Falcon.
 You're the last hope of this unfortunate people." Rabia's voice halted and
 tears flowed down her beautiful eyes.
 
 Badr bin Mughira was quite touched and said, "The daughters of the nation
-should not express such fears that drive its men in becoming peace lovers. So,
+should not express such fears that drive its men to becoming peace lovers. So,
 I thank you for your concern." Saying this Badr bin Mughira placed his foot in
 the stirrup of his horse but Rabia quickly said, "Wait!"
 
@@ -262,10 +263,10 @@ unsafe as you might think."
 
 Rabia hesitantly said, "Do you believe in dreams?"
 
-"Yes. I won't deny the truth of some dreams. I had a dream about my father once
-when I was child and it turned out to be true but after that I have written
-the interpretation of all my dreams with my sword. If you have seen a dream
-concerning me, then, for that too I will depend entirely on my sword."
+"Yes. I won't deny the truth of some dreams. I had a dream about my father
+once when I was child and it turned out to be true but after that I have
+written the interpretation of all my dreams with my sword. If you have seen a
+dream concerning me, then, for that too I will depend entirely on my sword."
 
 Rabia said hopefully, "I have full confidence in your sword. Every Muslim of
 Andalus has confidence in your sword and the interpretation of the dream that
@@ -297,7 +298,7 @@ fear that you might take things I said as a joke. My stepsister, Angela and my
 father too, laugh at things I talk about. For God's sake, don't mention
 anything about my dream to them."
 
-Maybe words are not enough to console you." Saying this Badr looked around and
+"Maybe words are not enough to console you." Saying this Badr looked around and
 whistled a few times. In response to this, a few guards hidden in the dense
 tree nearby, gathered around him.
 
@@ -314,12 +315,12 @@ Rabia impulsively moved forward and held the reins of Badr's horse and said,
 "For God's sake, don't think that I fear for myself. My anxiety is only for
 you. You are the nation's asset. You are the wealth of the Muslims. I wish I
 could do something else besides impressing you with my dream. I wish I was one
-of these diehard fighters who guard you. But I'm merely a superstitious girl
+of these die-hard fighters who guard you. But I'm merely a superstitious girl
 who can only offer you dreams and supplications. Rabia's voice dipped. Tears
 overflowed from her eyes. For quite some time, it was difficult for Badr bin
-Mughira to decide on what he should say. Despite the simplicity, humbleness
-and humility, Rabia's face had such an expression of sobriety, seriousness and
-dignity that left Badr bin Mughira quite impressed. He told her
+Mughira to decide on what he should say. Despite the simplicity, humbleness,
+and humility, Rabia's face had such an expression of sobriety, seriousness,
+and dignity that left Badr bin Mughira quite impressed. He told her
 apologetically, "I'm sorry that my words caused you distress. That wasn't the
 intention. I'm thankful to you. Okay, goodbye!"
 
@@ -346,7 +347,7 @@ accompany me to the peak?"
 
 "Let's go."
 
-"Thank you! I was afraid that I might loose the way on my way back."
+"Thank you! I was afraid that I might lose the way on my way back."
 
 "This way is not that complicated", Bashir said carelessly.
 
@@ -356,7 +357,7 @@ despite her desire, could not speak a word to him.
 By the time Angela reached the peak, she was badly gasping for breath. Her
 face was drenched with sweat. Bashir bin Hassan, being a physician of high
 morals, turned and had one look at this image of beauty and turned his face
-again and looked downwards at the lush green valley.  
+again and looked downwards at the lush green valley.
 
 Wiping the sweat on her face with a handkerchief and trying to catch her
 breath, Angela said, "It seems that you didn't even feel the climb. But my
@@ -366,7 +367,7 @@ Continuing to look downwards, Bashir said, "I'm used to climbing mountains.
 Maybe this is the first time you have tried it."
 
 Angela said, "The valley looks so captivating from here. It's unfortunate
-Rabia could not come with me."
+that Rabia could not come with me."
 
 "She should not be exerting herself so much at the moment."
 
@@ -392,7 +393,7 @@ this mountain would have remained in my heart."
 
 "It's not that big a desire to cause you grief."
 
-"I will never forget this beautiful scene. I have heard that the Frontier
+"I will never forget this beautiful scene. I have heard that The Frontier
 Falcon's forest has very captivating views too."
 
 "Yes, that area is very beautiful."
@@ -402,8 +403,8 @@ Falcon's forest has very captivating views too."
 "A person usually likes a place where he's doing beneficial work."
 
 "I think you will be able to do more beneficial work in cities like Castile,
-Seville and Cordova instead of mountains and forests. There the nobles,
-governors and even the King would be your appreciators. I hope you won't mind
+Seville, and Cordova instead of mountains and forests. There the nobles,
+governors, and even the King would be your appreciators. I hope you won't mind
 my saying but you're wasting your talent here. Father says that if you go to
 Castile, the King would offer you a great position in the court.
 
@@ -420,7 +421,7 @@ Being a physician, it is my duty to serve every human being but being a Muslim
 my first duty is to support those people in Andalus who are fighting for the
 honor and liberty of the Muslims. You find humanity in those senates of
 Castile where the chains of slavery are being prepared for Muslims and I find
-humanity in these huts whose residents prefer death than slavery to aliens."
+humanity in these huts whose residents prefer death over slavery to aliens."
 
 Feeling a bit sad, Angela said, "Are you sure you will be able to fight our
 Emperor for long?"
@@ -460,7 +461,7 @@ Bashir turned and looked towards her. Tears were flowing down her eyes.
 
 He felt touched and said, "Silly girl, you are crying?"
 
-"Please forgive me.", she reiterated.
+"Please forgive me," she reiterated.
 
 "But I don't understand the reason for these tears. If they convey a message of
 friendship from the Christians to the victorious then I'm afraid they are in
@@ -479,7 +480,7 @@ said."
 On Angela's silence, Bashir bin Hassan answered, "Your sister is over here."
 Then he addressed Angela and said, "Come on Angela. Your sister is calling."
 
-Angela started walking in front of Bashir. After a while, Angela, Rabia and
+Angela started walking in front of Bashir. After a while, Angela, Rabia, and
 Bashir were walking towards the fort.
 
 After crossing the stream, they met Abu Dawood who addressed Angela and Rabia
