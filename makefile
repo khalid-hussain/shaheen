@@ -26,7 +26,7 @@ concatenate:
         chap21.md \
         chap22.md > content.md
 
-latex:
+latex: concatenate
 	pandoc -t latex -o output.pdf content.md
 
 ebook: concatenate
