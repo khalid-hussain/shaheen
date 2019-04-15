@@ -18,7 +18,7 @@ strength. Unfortunately, there is no other claimant to the throne of Granada.
 So far, more than our swords, the primary guarantee for our successes was the
 disunity among the Muslims."
 
-The Queen said, "Even if the Muslims of Granada unite, I don't think that they
+The Queen said, "Even if the Muslims of Granada unite, I don't think they
 would rise against us. I am sure that they have not forgotten what happened to
 the rebels of Cordova, Toledo, and Seville."
 
@@ -33,26 +33,27 @@ The Queen replied, "This was the Holy Mary's grace upon us that they split
 up."
 
 "Perhaps with Holy Mary's grace, like Cordova and Toledo, the Muslims of
-Granada too continue to remain divided, otherwise, I know that their unity
-can compel the enemy, no matter how mighty, to its knees. If they remain
+Granada continue to remain divided. Otherwise, I know that their unity can
+compel the enemy, no matter how mighty, to its knees. If they remain
 scattered, they would be like piles of dust in the face of a mildly blowing
-wind but if they are united they will prove to be like an invincible rock
-even to a huge storm. I have come to know that a few scholars are trying to
+wind but if they are united they will prove to be like an invincible rock even
+to a huge storm. I have come to know that a few scholars are trying to
 motivate them in the name of Islam. If this is true, then, I would not
-consider these words of Abul Hassan as empty threats that 'instead of gold
-and silver coins for tribute our mint manufactures swords of steel'. Oh
-Queen, the truth is that instead of the army, I was relying more on the fact
-that I would take advantage of the civil war in Granada."
+consider these words of Abul Hassan as empty threats that 'instead of gold and
+silver coins for tribute our mint manufactures swords of steel.'"
+
+"O Queen, the truth is that instead of the army, I was relying more on the
+fact that I would take advantage of the civil war in Granada."
 
 "But even if the chances of civil war are not present in Granada, we should
 not hesitate to use our armed forces. I don't believe in giving the enemy
 time for preparations."
 
-"This is what I was thinking too. But because of Santiago's stupidity we have
+"This is what I was thinking too. But because of Santiago's stupidity, we have
 still not been able to wash away the stains of negative publicity that our
 soldiers' good reputation had received."
 
-The Queen said, "Can't we recognize the Frontier Falcon as an independent
+The Queen said, "Can't we recognize The Frontier Falcon as an independent
 ruler and have some agreement with him against Granada?"
 
 "No, rather I'm afraid if Abul Hassan announces to revolt against us, he would
@@ -68,17 +69,17 @@ Overwhelmed, more by the voice than the words, the army officer quickly exited
 after paying his respects.
 
 The Queen said, "Do you trust Abu Dawood to be loyal to you even after he goes
-to Granada?"  The King replied, "After having Mughira captured, he has gained
-our trust for life." "But his access to the Royal Court of Granada would not
+to Granada?" The King replied, "After having Mughira captured, he has gained
+our trust for life. But him accessing the Royal Court of Granada would not
 be that easy."
 
-Abu Dawood entered the room. He appeared to be around 45-50 years of age. From
+Abu Dawood entered the room. He appeared to be around 45–50 years of age. From
 his features and complexion, he seemed to be a mix of Spanish and Arab
-descent. Although most of his beard was white, his face had the freshness of a
+descent. Although most of his beard was white, his face had the freshness of
 youth. He sported a black robe and white turban.
 
-Abu Dawood move forward, first kissed the King's and then the Queen's hand,
-took three steps backwards and stood respectfully.
+Abu Dawood moved forward, first kissed the King's and then the Queen's hand,
+took three steps backwards, and stood respectfully.
 
 The King gestured towards an empty chair and said, "Have a seat."
 
@@ -90,7 +91,7 @@ Ferdinand said while smiling, "The King and Queen order you to sit."
 
 "The slave wouldn't dare disobey." Saying this Abu Dawood sat on the chair.
 
-Ferdinand said, "We believe that nature's signs dawn up you before they do on
+Ferdinand said, "We believe that nature's signs dawn upon you before they do on
 our holy monks. Once again we would like to test your intelligence. Tell us,
 what is the challenge that we are faced with today?"
 
@@ -104,17 +105,17 @@ rely on your intelligence more than anything else. Tell us, how did you arrive
 to the conclusion that we would like for you go to go to Granada?"
 
 "The slave had come to know that Abul Hassan has refused to pay tribute. Then,
-the slave came to know that the Great Emperor has called in a council.
+the slave came to know that the Great Emperor had called in a council.
 Moments after the conclusion of the council of the ministers, the Emperor's
 emissary had come to me. In such circumstances, it was not difficult for me
 to understand what was to be expected of me. I fully understand that if you
 would send me to a front against Abul Hassan, then, that front could only be
 Granada."
 
-"Then, I'm sure you must have also thought-out what you would have to do on
+"Then, I'm sure you must have also thought about what you would have to do on
 this front?"
 
-"Yes, I believe, in order to sow disunity in Granada it is important that we
+"Yes, I believe, in order to sow disunity in Granada, it is important that we
 come up with another claimant to the throne and this slave of yours would be
 able to decide who that other claimant could be only after he's in Granada."
 
@@ -131,17 +132,17 @@ that his father would make one of his step-brothers the crown prince. I have
 also heard that Abul Hassan likes his Christian wife more."
 
 Ferdinand jumped with excitement and said, "Then what are you waiting for? If
-Abu Abdullah has that doubt then you can change it to a fact. Then, you should
-leave by tomorrow itself."
+Abu Abdullah has that doubt, then you can change it to fact. You should leave
+no later than tomorrow."
 
 Abu Dawood said, "I am ready to go but in the type of work I'm undertaking, it
 requires that I take my family along. I might have to stay there until such
 time I get all the gates of the city open for your forces. The slightest doubt
 about me could nullify all our efforts. Therefore, I want to cross the border
-posing like a refugee. On reaching Granada, more than me, my wife and
-daughters would elaborate the tales of your barbaric rule so that no one
-suspects us. Another reason for taking my wife is that through her it would be
-easier for me to have access to the harem of Abul Hassan."
+posing like a refugee. On reaching Granada, my wife and daughters and I would
+elaborate the tales of your barbaric rule so that no one suspects us. Another
+reason for taking my wife is that through her it would be easier for me to
+have access to the harem of Abul Hassan."
 
 Ferdinand said, "Surely Abu Dawood, your services won't be in vain. We promise
 that you would be our first governor in Granada. And until the time the throne
@@ -167,7 +168,7 @@ ready."
 
 Abu Dawood replied while peeping outside, "This weather is perfect for my
 journey. We will leave this place as soon as we have had our food. I would
-also like to give you some instructions regarding our journey." "We will
+also like to give you some instructions regarding our journey. We will
 follow every order of yours with our heart and soul. Please come."
 
 Abu Dawood came out of the coach along with his wife and two young daughters.
@@ -198,14 +199,14 @@ chairs. While having food, Abu Dawood asked the officer, "How far is Granada's
 first check post?"
 
 The officer replied, "About eight miles. However, three miles down the road
-you will enter into their border. I think if I write to the officer of their
+you will enter their territory. I think if I write to the officer of their
 check post, he can make some arrangements for your protection across the
 border. But the governor has instructed me that I should not let him know
 anything at all."
 
 Abu Dawood replied, "The governor has followed my instructions. I am not
-entering their border as an ambassador to the King but would like to go in as
-a Muslim refugee."
+entering their territory as an ambassador to the King but would like to go in
+as a Muslim refugee."
 
 "In my opinion, if you want to deceive them, then, leave this coach and this
 road and travel either by foot or on horses by using a different route,
@@ -214,7 +215,7 @@ coach slipped by our watchful eyes?"
 
 "I believe the merchants of Granada and Castile travel these roads unimpeded.
 However, the plan that I have thought-out should be successful to a certain
-extent. Order 20 of your horsemen to get ready and instruct them to stay
+extent. Order twenty of your horsemen to get ready and instruct them to stay
 behind us and when we increase our coach's speed on nearing Granada's border,
 then, they should act as if they are trying to intercept us. When the
 soldiers at Granada's check post see that the Christians are trying to
@@ -232,9 +233,8 @@ considered to be a minor thing."
 soldiers."
 
 On the army officer's order, a servant called in a soldier of the fort. The
-officer said to the soldier,
-
-"Order 20 horsemen to get ready. We are going on a mission."
+officer said to the soldier, "Order twenty horsemen to get ready. We are going
+on a mission."
 
 Then he turned towards Abu Dawood and said, "Have you heard anything about the
 Frontier Falcon?"
@@ -263,7 +263,7 @@ Angela said, "I have heard that he's very cruel."
 
 The officer replied, "His biggest virtue is that he is not cruel. He does not
 raise his hand on the unarmed and helpless. He does not attack a befallen
-enemy. No doubt he's the biggest enemy of our kingdom, but, he's a decent
+enemy. No doubt he's the biggest enemy of our kingdom, but he's a decent
 enemy."
 
 Abu Dawood said, "I must appreciate your honesty. Like you, Santiago too,
@@ -272,7 +272,7 @@ admires his nobility."
 Angela said, "Father! If we were to meet him along the way, I'm sure he would
 supply us with his best horses to complete the journey."
 
-Rabia asked, "Why do people call him 'The Frontier Falcon'?"
+Rabia asked, "Why do people call him _The Frontier Falcon_?"
 
 The office replied, "This title was given to him by Count Santiago because
 when it comes to being fierce, fast and clever, he's no less than a falcon."
@@ -284,23 +284,23 @@ he's some Moroccan."
 
 Abu Dawood said, "We'll soon come to know who he is."
 
-The officer enquired, "Does His Highness the King plan to launch an attack?"
+The officer inquired, "Does His Highness the King plan to launch an attack?"
 
 Abu Dawood replied, "His force is not that large to have the King to
 personally launch an attack. A clever man is enough for him who is familiar
-with his war tactics.
+with his war tactics."
 
 The rain continued to pour heavily. After riding with normal speed for about a
 mile and a half, Abu Dawood ordered his coachman to increase the speed of the
 coach. The horsemen who were pursuing stopped their horses on the signal of
-their officer. When the coach had about a mile's lead, the horsemen gave it a
+their officer. When the coach had about a mile's lead, the horsemen gave it
 chase.
 
 In the lower part of the valley, some parts of the road had disappeared under
-the rain water therefore, despite Abu Dawood's insistence, the coachman was
+the rain water. Therefore, despite Abu Dawood's insistence, the coachman was
 taking precaution to a certain extent. When the distance between the coach and
 its chasers would become very little, then, the chasers would reduce their
-speed to let the coach take a lead.
+speed to let the coach have a lead.
 
 Due to the flooding, the road had been damaged from several sides. Because of
 the jumps of the coach caused by the rocks and holes on the road, Abu Dawood's
@@ -308,7 +308,7 @@ wife and younger daughter, Angela, were protesting severely. Even Abu Dawood's
 head had bumped with his wife and daughter several times but he appeared to be
 absolutely heedless to Angela's screams and his wife's cries. Once, the coach
 bounced after hitting a stone that was submerged in water on the road. A
-screaming Maria's jumped and her head went and hit the ceiling. She cried,
+screaming Maria jumped and her head went and hit the ceiling. She cried,
 "Order the coach to stop or else I will open the door and jump. You are a
 barbarian. You want to get rid of us before reaching Granada? For God's sake,
 stop the coach."
@@ -316,7 +316,7 @@ stop the coach."
 With another powerful jolt Maria's and Angela's heads collided against each
 other. When Angela started wailing, Abu Dawood said, "If I knew that you would
 prove to be as courageous as your mother, I would never had brought you along.
-Look at Rabia. She hasn't even uttered a word of complain from her mouth."
+Look at Rabia. She hasn't even uttered a word of complaint from her mouth."
 
 As soon as Abu Dawood said this, Maria and Angela lashed out at Rabia.
 
@@ -328,11 +328,11 @@ first attend to her."
 Ignoring their taunts and sarcasm, she said, "Father! Why do you bother Angela
 and Mother? Please order the coach to stop."
 
-Abu Dawood said, "Maria! Be a little patient. We have entered in Granada's
-border. As soon as their men see us in this condition, they will try to
-intervene. When I had given this suggestion at home, you jumped with joy. Now
-you're upset because of a little discomfort. A person has to go through a lot
-of dangerous phases to get power and prestige."
+Abu Dawood said, "Maria! Be a little patient. We have passed Granada's border.
+As soon as their men see us in this condition, they will try to intervene.
+When I had given this suggestion at home, you jumped with joy. Now you're
+upset because of a little discomfort. A person has to go through a lot of
+dangerous phases to get power and prestige."
 
 Maria shouted and said, "You're so stupid. Who on earth would be waiting for
 you in this storm? They must be sitting comfortably in their rest houses."
@@ -382,11 +382,11 @@ heading towards a collision course with some boulders in its path, which could
 prove fatal for all of them.
 
 The horsemen that were in-pursuit could hardly have reached in time to stop
-the horses. Suddenly, a contingent of 30 to 40 horsemen appeared from the
+the horses. Suddenly, a contingent of thirty to forty horsemen appeared from the
 forest in front and quickly reached close to the coach. Leading on a dark
 horse was a masked man, whose white robe was fluttering in the air. On the
 masked man's cue the rest of the horsemen raised their swords and while
-raising the slogans of "Allahu Akbar", diverted their attention towards the
+raising the slogans of "Allahu Akbar," diverted their attention towards the
 intercepting horsemen, who had changed their course after firing a few arrows
 at the coach.
 
@@ -394,13 +394,13 @@ Seeing the coach without its driver, the masked man dashed his horse towards
 it. He came close to one of the horses in front and after positioning his
 horse near it, jumped on it. He was still trying to balance himself when one
 of the coach's wheel broke after crashing into a rock and the coach overturned
-to the other side. The reins snapped under feet of the horses, but the ones in
+to the other side. The underfeet reins of the horses snapped, but the ones in
 their mouth remained intact. The masked man extended his hand and first
 grabbed one and then the other horse by the reins and tried to stop them with
-all his strength. Dragging, stumbling and crashing into the rocks, the coach
+all his strength. Dragging, stumbling, and crashing into the rocks, the coach
 finally came to a halt.
 
-After a while when the masked man's comrades returned after chasing away the
+After a while, when the masked man's comrades returned after chasing away the
 intercepting horseman and arresting the distraught coachman, the masked man
 pointed towards the groaning passengers near the broken coach and said,
 "Unfortunately, I could not save them from getting injured. But I'm sure that
@@ -412,10 +412,9 @@ bloody forehead, he looked at the masked man and his comrades and said in a
 feeble tone, "Thank You." Then, he turned his attention towards his wife and
 daughters.
 
-"Maria! Rabia! Angela!" he said after shaking each one of them one after the
-other.
+"Maria! Rabia! Angela!" he said after shaking them, one after the other.
 
 Maria opened her eyes while groaning and closed them feeling fearful. After a
-moment, she reopened her eyes and after crying, "Angela! My Angela", shook her
+moment, she reopened her eyes and after crying, "Angela! My Angela," shook her
 aggressively. Angela was bleeding from her lower lips and temple. After
 moaning a few times, she started staring at her mother.
