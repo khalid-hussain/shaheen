@@ -4,7 +4,7 @@
 # New Endeavors
 
 After the victory of Sakhra, Abul Hassan started preparing for a decisive war
-against the Christians at a massive scale. Those influential chiefs and
+against the Christians on a massive scale. Those influential chiefs and
 leaders of tribes of the sultanate who, so far, had been involved in the
 internal squabbles between Arab Berbers and Hispanian Muslims, began uniting
 against the common enemy. For the Hispanian and the Berber chiefs, Abul Hassan
@@ -13,7 +13,7 @@ crescent flag against the Christian flag. An influential segment of Islamic
 scholars had given this war the status of a _jihād_. After the victory of
 Sakhra, when Abul Hassan returned to Granada, for the first time he felt that
 he had become the leader of Granada in the true sense of the word. The people
-had laid down flower wreaths in his path from the military headquarters till
+laid down flower wreaths in his path from the military headquarters till
 Al-Hamra. At night, he ran a glance from the top of the high minaret of the
 Al-Hamra palace. The entire city was lit and the people were joyfully raising
 slogans of victory in the streets and markets. Abul Hassan looked towards the
@@ -21,12 +21,12 @@ sky, then raised his hands and supplicated:
 
 "O Lord! Give strength to my weak hands. Grant me the determination of Tariq
 bin Ziyad and the morale of Musa bin Naseer. Grant my people, once more, the
-fiery of those mujāhidīn whose horses drank water from the rivers of France
+fire of those _mujāhidīn_, whose horses drank water from the rivers of France
 on one side and the rivers of China from the other. Transform our disunity
 into unity. You can change this pile of sand to a cliff. My Lord! Don't
 disappoint these people who are so overjoyed by a small victory. I was not
 worthy of this task but if you have chosen me for it, then give me courage,
-determination and perseverance. And if I'm not able to take back the sultanate
+determination, and perseverance. And if I'm not able to take back the sultanate
 of my ancestors, then give Abu Abdullah the ability to do so. Or else give me
 the ability to choose a befitting heir for the Sultanate of Granada."
 
@@ -47,7 +47,7 @@ Abu Abdullah was fascinated by Abu Dawood after their first solitary meeting.
 He read his palm and pointing to a few lines of his hand said, "O Prince! You
 were not born to rule over Granada."
 
-Seeing the disturbance on Abu Abdullah's face, he smiled and said, "For you
+Seeing the disturbance on Abu Abdullah's face, he smiled and said, "For you,
 these lines point towards Alexander's destiny and Abdul Rahman the Great's
 majesty. If my knowledge does not fail me, then, banners of your authority
 will flutter from Pyrenees to Gibraltar. The rulers of Morocco and France will
@@ -58,10 +58,10 @@ calls me an idiot."
 
 "O Prince! There is a time set for a fruit to ripen and for a flower to
 blossom. You're near and dear ones will keep saying this until your time to
-rise does not come. But they want the best for you and not otherwise. Just
-wait for that moment."
+rise comes. But they want the best for you and not otherwise. Just wait for
+that moment."
 
-From that day onwards Abu Abdullah thought of himself as Alexander and his
+From that day onwards, Abu Abdullah thought of himself as Alexander and his
 teacher as Aristotle. Both waited for that moment according to their own
 designs. After a few meetings the teacher became aware of what moment the
 student was waiting for. But the student was oblivious of his teacher's
@@ -78,20 +78,20 @@ the bazaars of Granada. What is that thought that is disturbing the Crown
 Prince of Granada at this time?"
 
 Abu Abdullah said, "Is it also my teacher's order that I should raise slogans
-at the victory of Musa, Al-Zaghairi and Badr bin Mughira? Aren't my
-stepbrothers enough who were walking in front of their horses in the
-procession like servants today? All this is happening because they know that I
-cannot do this kind of flattery and they want to prove to my father, once
-again, that I'm totally incompetent."
+at the victory of Musa, Al-Zaghairi, and Badr bin Mughira? Weren't my
+stepbrothers, who were walking in front of their horses in the procession like
+servants today, enough? All this is happening because they know that I cannot
+do this kind of flattery and they want to prove to my father, once again, that
+I'm totally incompetent."
 
 Abu Dawood said, "I don't know anything about your stepbrothers but I do know
-this much about Al-Zeghel that he is not your ill-wisher and even if he was
-your ill-wisher even then you should handle him tactfully. You are the Crown
-Prince of Granada and as the Crown Prince it becomes your duty to be friends
-with even your worst enemies until you have worn the crown. A king can subdue
-his enemies with his sword but a crown prince cannot do this and when there
-are other claimants to the throne, he should be extra cautious. If you aim to
-chop the heads of your opponents after you become the ruler, then today it is
+this much about Al-Zeghel, that he is not your ill-wisher and even if he was
+your ill-wisher, you should handle him tactfully. You are the Crown Prince of
+Granada and as the Crown Prince, it becomes your duty to be friends with even
+your worst enemies until you have worn the crown. A king can subdue his
+enemies with his sword but a crown prince cannot, and when there are other
+claimants to the throne, he should be extra cautious. If you aim to chop the
+heads of your opponents after you become the ruler, then today, it is
 imperative that you go against your wishes and place flower garlands around
 their necks so that their nerves don't become firm against you."
 
@@ -112,10 +112,10 @@ advice would never be in my favor."
 After pondering for a while with his head bowed, Abu Dawood said, "O Prince!
 There was one thing I did not tell you after reading your palm. I was scared."
 
-Abu Abdullah said, "For God's sake do tell me."
+Abu Abdullah said, "For God's sake, do tell me."
 
 Abu Dawood looked around and said, "What I'm afraid of is that if this gets to
-a third pair of ears, then, along with you even I would be in trouble."
+a third pair of ears, then along with you, even I would be in trouble."
 
 Abu Abdullah said, "Don't worry. There is no one here to listen to our conversation."
 
@@ -124,24 +124,24 @@ Granada in your father's lifetime without his consent. Destiny will give you a
 chance. This decision will be very harsh but you will have to take it. It is
 not Abul Hassan's destiny but yours to conquer Andalus."
 
-Overwhelmed by emotions of happiness, fear and anxiety, Abu Abdullah said,
+Overwhelmed by emotions of happiness, fear, and anxiety, Abu Abdullah said,
 "When will that time come?"
 
 Abu Dawood replied, "Very soon. But remember my advice. Before that time
 arrives, it is your duty that your father and uncle should not have any
 suspicion about you. Why do you think they had left Al-Zeghel behind?"
 
-Abu Abdullah replied, "I know why. Because they don't have trust in me."
+Abu Abdullah replied, "I know why. Because they don't trust me."
 
-"Then it is your duty to gain back that lost trust again. A lot needs to be
-sacrificed for the sake of the crown and throne. And also remember that if for
-some reason the Sultan or your uncle become suspicious of you then you will
-also loose my support forever."
+"Then it is your duty to regain that lost trust. A lot needs to be sacrificed
+for the sake of the crown and throne. And also remember that if for some
+reason the Sultan or your uncle become suspicious of you then you will also
+lose my support forever."
 
 Abu Abdullah said, "I will follow your advice."
 
 "Then, my first advice to you is that you go to your father. If he has not
-slept as yet, then congratulate him on the victory and also tell him that you
+slept yet, then congratulate him on the victory and also tell him that you
 deeply regret not having the privilege of taking part in this battle. Then,
 first thing tomorrow morning, go and meet all the senior officials of the army
 and, if possible, distribute prizes among them. The Sultan will be very happy
@@ -150,7 +150,7 @@ at this and some of these people might be useful to you in the future."
 "I will go to father right away."
 
 The next day, Abul Hassan said to Al-Zeghel, "I would like to meet the teacher
-that you have appointed for Abdullah. He seems to be an intelligent man.
+that you have appointed for Abu Abdullah. He seems to be an intelligent man.
 Today, I felt a lot of change in Abu Abdullah's views. He was getting upset
 over the fact that I did not take him along with me to the campaign."
 
@@ -160,7 +160,7 @@ After the third day of these events, Badr bin Mughira received the news that
 the Christians had restarted incursions along the border. So, he immediately
 ordered his troops to make preparations for departure.
 
-Before leaving when he met Abul Hassan, he said, "I first attacked Sakhra so
+Before leaving, when he met Abul Hassan, he said, "I first attacked Sakhra so
 that the people would awake from their deep sleep. Now the benefit of this
 victory is that in a few months, I will be able to prepare them for the
 decisive battle. In the meanwhile, stay engaged at your front. I won't call
@@ -168,7 +168,7 @@ you except in case of dire need. If you keep up the skirmishes at the border,
 then the advantage would be that it will give us more time to prepare and
 Ferdinand would also have his attention divided on two fronts."
 
-After meeting Abul Hassan as Badr bin Mughira was leaving the Al-Hamra Palace,
+After meeting Abul Hassan, as Badr bin Mughira was leaving the Al-Hamra Palace,
 a slave girl handed him a slip of paper.
 
 When Badr bin Mughira opened the piece of paper, these words were written on
@@ -178,22 +178,23 @@ For a few moments Badr bin Mughira felt delightful heartbeats and a familiar
 face emerged in front his eyes. Badr bin Mughira said to the slave girl,
 "Please thank her on my behalf and ask her to supplicate for me."
 
-In the evening she learned from her father that the Frontier Falcon had
+In the evening, she learned from her father that The Frontier Falcon had
 returned to his habitat.
 
-While Ferdinand was making preparations to avenge the Frontier Falcon, he
-received the news that Sakhra had been captured by Abul Hassan. He immediately
-ordered all his governors and chiefs to make preparations. His spies,
-disguised as Jewish merchants kept him posted of Abul Hassan's objectives. He
-had a huge cross installed at the gate of his palace and pledged in front of
-Castile's public that he won't rest until he had that cross installed on the
-gate of Al-Hamra. Every noble in the kingdom followed his example. Then people
-from every corner of the kingdom would come to Castile and would swear not to
-sheath their swords until Granada was conquered.
+While Ferdinand was making preparations to avenge The Frontier Falcon's
+victory, he received the news that Sakhra had been captured by Abul Hassan. He
+immediately ordered all his governors and chiefs to make preparations. His
+spies, disguised as Jewish merchants kept him posted of Abul Hassan's
+objectives. He had a huge cross installed at the gate of his palace and
+pledged in front of Castile's public that he wouldn't rest until he had that
+cross installed on the gate of Al-Hamra. Every noble in the kingdom followed
+his example. Then people from every corner of the kingdom would come to
+Castile and would swear not to sheath their swords until Granada was
+conquered.
 
-One day a Jew of Granada came to Ferdinand and presented him a letter. After
-reading the letter Ferdinand said to the emissary, "You have done us a great
-service and if you can take a reply back to Granada then you will be
+One day, one of Granada's Jews came to Ferdinand and presented him a letter.
+After reading the letter, Ferdinand said to the emissary, "You have done us a
+great service and if you can take a reply back to Granada then you will be
 handsomely rewarded."
 
 The Jew replied, "I will do this service with the utmost pleasure."
@@ -202,16 +203,16 @@ Ferdinand said, "If you feel there is danger in carrying a written reply then
 we can give you a verbal message tomorrow."
 
 The Jew said, "I don't feel any danger in taking a written reply back. On my
-way from Granada I was searched at several checkposts but despite that they
+way from Granada I was searched at several check posts but despite that, they
 could not find this letter."
 
 Ferdinand said, "You seem to be a clever man but where had you hidden this
-letter during the checking?"
+letter during the checks?"
 
 The Jew replied, "Abu Dawood had stitched this letter inside my shoe."
 
-"Very well then, meet us tomorrow". Saying this Ferdinand ordered a soldier to
-take the Jew to the Royal Guest House.
+"Very well then, meet us tomorrow." Saying this, Ferdinand ordered a soldier
+to take the Jew to the Royal Guest House.
 
 Once the emissary left, Ferdinand carefully read the letter again and after
 pondering, got up and went to the Queen's chamber.
@@ -220,15 +221,17 @@ pondering, got up and went to the Queen's chamber.
 
 "What do you mean?"
 
-"You had made a bet about Abu Dawood that he would betray us. Here, read this
+"You had made a bet about Abu Dawood, that he would betray us. Here, read this
 letter. All your doubts will be cleared." The King presented the letter to the
 Queen.
 
+<!-- TODO Al-Hamra or Alhama -->
+
 The Queen read the letter and after thinking for a while said, "The content of
 this letter suggest that our doubts were baseless but we should not forget
-that the writer is Abu Dawood who is quite capable of showing the truth as
-false. He has asked us to unexpectedly attack Alhama but I fear that this move
-too could have some ulterior motives."
+that the writer is Abu Dawood, who is quite capable of showing the truth as
+falsehood. He has asked us to unexpectedly attack Al-Hamma but I fear that this
+move too, could have some ulterior motives."
 
 Ferdinand replied, "I have learned a lot about Abul Hassan's intentions and
 about his preparations from my spies too. I certainly agree with this
@@ -236,83 +239,82 @@ suggestion of Abu Dawood that we should immediately capture any important city
 near Granada's border to compensate the loss of Sakhra. This would dampen the
 joy and enthusiasm of the Muslims for a while and it would boost the morale of
 our troops. In my opinion, if the Governor of Cadiz makes a surprise attack on
-them, then, we should be able to capture Alhama as easily as they have
+them, then, we should be able to capture Al-Hamma as easily as they have
 captured Sakhra.
 
 "And what makes you so sure that they would be taken by surprise. Isn't it
-possible that on reaching Granada Abu Dawood might have seen his destiny with
+possible that on reaching Granada, Abu Dawood might have seen his destiny with
 the Muslims and might have sent this letter with the knowledge of Abul
 Hassan?"
 
-"My heart testifies that your doubts are baseless. But even if this is so, they
-will still wait for the reply to this letter to know what our objectives are
-while I can take the precaution of making them wait for a reply until the
-Governor of Cadiz captures Alhama. Abu Dawood is not wrong in saying that
-Alhama is the key to Granada and we will be able to win half the war by
-capturing it. I will send a message to the Governor of Cadiz today itself and
-I will proceed to Loja. Their entire focus would be on me and Cadiz's army
-would get a chance to capture Alhama. I will also give marching orders to the
-armies of Cordova and Seville. If we were to take a defeat at a front it
-certainly won't be Alhama's.
+"My heart testifies that your doubts are baseless. But even if this is so,
+they will still wait for the reply to this letter to know what our objectives
+are while I can take the precaution of making them wait for a reply until the
+Governor of Cadiz captures Al-Hamma. Abu Dawood is not wrong in saying that
+Al-Hamma is the key to Granada and we will be able to win half the war by
+capturing it. I will send a message to the Governor of Cadiz this very day and
+will proceed to Loja. Their entire focus would be on me and Cadiz's army would
+get a chance to capture Al-Hamma. I will also give marching orders to the
+armies of Cordova and Seville. If we were to take a defeat at a front, it
+certainly won't be Al-Hamma's.
 
 Spies had informed Abul Hassan that Ferdinand had left Castile with a legion
-of his troops. Alongwith this, he also got to know about the troop movement of
-the armies of Cordova and Seville. He divided his army into three groups. He
-gave the command of one section under the leadership of Al-Zeghel, ordering
+of his troops. Along with this, he also got to know about the troop movement
+of the armies of Cordova and Seville. He divided his army into three groups.
+He gave the command of one section under the leadership of Al-Zeghel, ordering
 him to block the forces advancing from Seville. For the second army, he could
 not find a more befitting man than Musa but on the advice of a few nobles he
-left Musa with Abu Abdullah in Granada and called for Badr bin Mughira to
-lead it.
+left Musa with Abu Abdullah in Granada and called for Badr bin Mughira to lead
+it.
 
 Badr bin Mughira reached Granada with more than half of his troops and took
 charge of the force that was advancing towards the border of Cordova.
 
-Abul Hassan kept the charge of the remainder of the army in his hand. Before
-leaving, he called Abu Abdullah and said, "Son! With the absence of Al-Zeghel
-and I, a great responsibility rests with you. According to your age, you are
-old enough to take care of the Sultanate's affairs. However, I'm leaving Musa
-behind for your assistance. In my eyes he is no less that Al-Zeghel. Don't
-take any step without his advice. If something were to happen to me then
-remember that my soul won't rest until you take back the lost Sultanate of
-Andalus."
+Abul Hassan was in charge of the remainder of the army. Before leaving, he
+called Abu Abdullah and said, "Son! With the absence of Al-Zeghel and I, a
+great responsibility rests with you. According to your age, you are old enough
+to take care of the Sultanate's affairs. However, I'm leaving Musa behind for
+your assistance. In my eyes he is no less that Al-Zeghel. Don't take any step
+without his advice. If something were to happen to me then remember that my
+soul won't rest until you take back the lost Sultanate of Andalus."
 
-Abu Abdullah said, "It is my misfortune that even at this point in time I do
-not have the privilege of being a soldier in your army. However, I will try my
-utmost to prove myself worthy to fulfill the responsibility that you have
-assigned to me but I feel that you would need an experienced general like
-Musa on every front. It is vital that he stayed with you. You may leave
-anybody else for my assistance."
+Abu Abdullah said, "It is my misfortune that even now, I do not have the
+privilege of being a soldier in your army. However, I will try my utmost to
+prove myself worthy to fulfill the responsibility that you have assigned to me
+but I feel that you would need an experienced general like Musa on every
+front. It is vital that he stayed with you. You may leave anybody else for my
+assistance."
 
 Abul Hassan replied, "You are right but another reason to leave Musa here is
 that he will be able to recruit new soldiers for reinforcement."
 
-After leaving Granada Abul Hassan encamped near bordercity, waiting for
+After leaving Granada, Abul Hassan encamped near a border city, waiting for
 Ferdinand's armies. With him were two brilliant generals of Granada's army,
 Al-Zaghairi and Naeem Ridwan, to take Musa's place.
 
-Two weeks passed and Abul Hassan got to know that Ferdinand's army have halted
+Two weeks passed and Abul Hassan came to know that Ferdinand's army had halted
 at a place across the border. Similar news was received from Al-Zeghel and
-Badr bin Mughira that troops moving from Seville and Cordova have halted near
+Badr bin Mughira, that troops moving from Seville and Cordova have halted near
 the border.
 
 But, in the third week he suddenly received the news that the ruler of Cadiz
-had immediately advanced his troops and captured Alhamma. With this news he
-realized the actual reason why the armies of Castile, Cordova and Seville had
-halted across the border. With the news of the victory of Alhama, Abul Hassan
+had immediately advanced his troops and captured Al-Hamma. With this news he
+realized the actual reason why the armies of Castile, Cordova, and Seville had
+halted across the border. With the news of the victory of Al-Hamma, Abul Hassan
 also started receiving reports that the ruler of Cadiz had massacred thousands
 of its citizens.
 
-Alhama was the most important fort for the defense of Granada. From there, the
-enemy forces could invade Granada anytime. The sounds of "My Alhama" resonated
-far and wide in Granada. Everyone was of the opinion that the keys of Granada
-have gone into the hands of the enemy.
+Al-Hamma was the most important fort for the defense of Granada. From there,
+the enemy forces could invade Granada anytime. The sounds of _My Al-Hamma_
+resonated far and wide in Granada. Everyone was of the opinion that the keys
+of Granada have gone into the hands of the enemy.
 
-Abul Hassan realized that now Ferdinand would divert his attention towards
-Alhama and attack some other city. Therefore, he sent orders to Al-Zeghel and
-Badr bin Mughira to remain at their fronts and gave half of his troops to
-Al-Zaghairi to march towards Alhama.
+Abul Hassan realized that now Ferdinand would divert his attention from
+Al-Hamma and attack some other city. Therefore, he sent orders to Al-Zeghel
+and Badr bin Mughira to remain at their fronts and gave half of his troops to
+Al-Zaghairi to march towards Al-Hamma.
 
-Al-Zaghairi besieged Alhama and closed all the external supply routes for
+Al-Zaghairi besieged Al-Hamma and closed all the external supply routes for
 reinforcements and supplies. When Ferdinand received the news of the siege, he
 ordered his troops to march from all three directions.
 
@@ -321,13 +323,13 @@ of giving them a chance to cross the border, Badr bin Mughira crossed the
 border and attacked them. Compared to the troops of Cordova, the number of his
 troops were quite less but his battle tactics were far superior. Instead of
 openly displaying the strength of his troops, Badr bin Mughira was causing
-immense damage to Cordova's army by conducting guerilla attacks with his
+immense damage to Cordova's army by conducting guerrilla attacks with his
 army's thunder squads. Bands of his cavalry would suddenly appear and then
 disappear in front of the enemy's cavalry, leaving the left, right and rear
-flanks in total disarray. This feat would be repeated several times a day.  
+flanks in total disarray. This feat would be repeated several times a day.
 
 By now, the soldiers of Cordova had come to know that the general of Granada's
-army was the Frontier Falcon. They also knew whether they advanced or
+army was The Frontier Falcon. They also knew whether they advanced or
 retreated, in both cases their destruction was inevitable. On the other side,
 skirmishes had begun between the armies of Al-Zeghel and Seville.
 
@@ -335,14 +337,14 @@ When Ferdinand came to know about the General of the Cordova's army's anguish,
 he invaded Loja. Anticipating his move, Abul Hassan reached within the
 vicinity of Loja but the spies informed him that Ferdinand's army was far
 greater than his expectation. Since Abul Hassan was not expecting any major
-reinforcement from Granada, therefore, he called for Al-Zeghel. Al-Zeghel,
-too, enquired about the significance of Loja's front but before coming to the
-aid of his brother he attacked Seville's army intensely and after causing
-severe damage turned towards Loja. At the same time, he sent orders to
-Al-Zaghairi that if the armies of Seville were to move towards Alhama, then,
-he should stop the siege and come to Loja.
+reinforcement from Granada, he called for Al-Zeghel. Al-Zeghel, too, inquired
+about the significance of Loja's front but before coming to the aid of his
+brother he attacked Seville's army intensely and after causing severe damage
+turned towards Loja. At the same time, he sent orders to Al-Zaghairi that if
+the armies of Seville were to move towards Al-Hamma, then, he should stop the
+siege and come to Loja.
 
-From one side, Al-Zaghairi had damaged the boundary wall of Alhama when the
+From one side, Al-Zaghairi had damaged the boundary wall of Al-Hamma when the
 meek-hearted army of Seville approached. Now he faced a greater challenge than
 capturing the city and that was to seek a safe passage for his troops, who
 were surrounded by the armies of Seville, who were tightening the noose around
@@ -359,7 +361,7 @@ river and within moments some five hundred horsemen appeared from the clouds
 of dust and within no time wiped out the force that was blocking Al-Zaghairi's
 path on the other side of the bridge.
 
-When Al-Zaghairi's infantry and cavalry reached a secure location to the other
+When Al-Zaghairi's infantry and cavalry reached a secure location on the other
 side of the bridge, he learned that his rescuers had come from Granada. When
 he requested to meet the General of the troops, a masked horseman came forward
 with his horse and said in a commanding voice, "This is no time to talk.
@@ -373,21 +375,20 @@ would be very upset. Don't mention anything about me to him. Leaving Granada
 has its own dangers but Abu Abdullah thinks that I'm at the military
 headquarters."
 
-Saying this Musa signaled his comrades, prompted his horse and took-off. The
+Saying this Musa signaled his comrades, prompted his horse and took off. The
 soldiers saw them disappear in the clouds of dust just as they had appeared.
 
 When Badr bin Mughira received the news that the rest of Granada's army was
 gathering to fight a decisive battle at Loja, he decided to give a final blow
-to the army of Cordova and sent across a message to his deputy, Mansour bin
-Ahmed to position himself along with two thousand horsemen behind the army of
-Cordova.
+to the army of Cordova and sent a message to his deputy, Mansour bin Ahmed to
+position himself along with two thousand horsemen behind the army of Cordova.
 
 Mansour bin Ahmed ravaged the cities and villages along his path and reached
 the rear of the army of Cordova with incredible speed. As soon as Badr bin
 Mughira received his news, he moved his infantry soldiers back a few miles and
 ordered his cavalry to attack the enemy's left and right flanks. On seeing the
 infantry retreating, the General of the Cordova's army came to the conclusion
-that like Al-Zaghairi, the Frontier Falcon too is removing his troops from
+that like Al-Zaghairi, The Frontier Falcon too was removing his troops from
 this front to take part in the battle at Loja. He had already received orders
 from Ferdinand to keep the enemy engaged at this front until the outcome of
 Loja's front. So far, he was unaware of Mansour bin Ahmed's arrival. He
@@ -396,7 +397,7 @@ this period the infantry archers had positioned themselves behind a trench.
 
 The lancers of Cordova were greeted with a volley of arrows as they approached
 the trenches and the only option the General saw was to retreat but by this
-time Mansour bin Ahmed had already attacked from the rear and troops in the
+time, Mansour bin Ahmed had already attacked from the rear and troops in the
 rear flank were pushing the troops in the center, as they took a beating.
 
 With Badr bin Mughira's troops on the right and left and Mansour bin Ahmed's
@@ -419,7 +420,7 @@ face of Ferdinand's army of fifty thousand. For two days, Ferdinand's knights
 and Granada's fighters were displaying individual feats of valor. The battle
 began when one of Ferdinand's knights, who was covered in metal from head to
 toe, galloped forward and stood in the battlefield. He raised his sword. Naeem
-bin Ridwan, who wore an aventail on his head and a light coat-of-mail on his
+bin Ridwan, who wore an aventail on his head and a light coat of mail on his
 body, galloped forward.
 
 The swords of both the horse riders clashed. Because of his heavy armor, the
@@ -432,17 +433,17 @@ Naeem struck a few more blows consecutively, one after the other. His horse
 jumped and due to the weight of the weapons he could not maintain his balance.
 After falling off his horse, he tried to get up but Naeem quickly jumped off
 his horse, removed the knight's helmet and chopped his head off. Abul Hassan's
-army raised slogans of "Allahu Akbar". When Ferdinand's second fighter came
-into the field, Al-Zaghairi got hold of a lance and trotted his horse forward.
-Besides a coat-of-mail, the knight also wore an iron shield over his chest.
+army raised slogans of "Allahu Akbar." When Ferdinand's second fighter came
+onto the field, Al-Zaghairi got hold of a lance and trotted his horse forward.
+Besides a coat of mail, the knight also wore an iron shield over his chest.
 Both rivals moved towards each other holding their lances. While saving
-himself Al-Zaghairi struck with his lance on the knight's chest. The lance
-broke as it hit the iron shield. But because of the powerful blow, the
-Christian knight fell to the ground and Al-Zaghairi pounced on him from his
-horse and finished him off.
+himself, Al-Zaghairi struck the knight's chest with his lance. The lance broke
+as it hit the iron shield. But because of the powerful blow, the Christian
+knight fell to the ground and Al-Zaghairi pounced on him from his horse and
+finished him off.
 
-Witnessing the fatalities of two of his bravehearts, Ferdinand gave the order
-for an all-out attack. An intense battle raged till the evening. By nightfall,
+Witnessing the fatalities of two of his heroes, Ferdinand gave the order for
+an all-out attack. An intense battle raged till the evening. By nightfall,
 both parties retreated to their encampments.
 
 The next day too, the battle ensued in the same manner. Fighters from both
@@ -453,7 +454,7 @@ crucial for both armies. But Abul Hassan's concern was greater than his
 enemy's. Musa had already sent a reinforcement of two thousand troops from
 Granada but in the past two days, five thousand of his troops had either been
 wounded or killed. According to an estimate by Abul Hassan's officers, the
-number of soldiers killed and injured was not less than twenty thousand. But
+number of soldiers killed and injured was no less than twenty thousand. But
 within the past two days they had already received fifteen thousand fresh
 troops from different cities of Andalus.
 
@@ -462,19 +463,19 @@ of two thousand was blocking a huge flood of Cordova's battalion. But despite
 being aware of this, Abul Hassan's moral did not slump. Every soldier was
 there fighting without caring for victory or defeat. They knew very well that
 if they showed their backs and ran from the battlefield, the enemy would be
-able to reach the walls of Granada within a span of a few days.
+able to reach the walls of Granada within the span of a few days.
 
-On the third day when the two armies came face-to-face with each other, a
+On the third day, when the two armies came face to face with each other, a
 knight of the Castilian army, whose entire body was clad in metal armor, came
-in the field and invited the other side for a duel. His aventail gave a
-resemblance to a bull's face. The weapons he was carrying were so heavy that
-his horse's back was slumping. A Berber youth came forward to take up the
-challenge but fell-off his horse after being struck by the lance. Then, a
-Hispanian Muslim came forward but his sword and lance proved useless against
-the knight concealed in metal. Shortly, this knight had also killed his second
-opponent and Ferdinand's soldiers were raising slogans in jubilation. The
-iron-clad knight raised his sword and made a small round. Then, standing,
-facing the Granada army, he waited for his next opponent.
+on the field and invited the other side for a duel. His aventail resembled a
+bull's face. The weapons he was carrying were so heavy that his horse's back
+was slumping. A Berber youth came forward to take up the challenge but
+fell off his horse after being struck by the lance. Then, a Hispanian Muslim
+came forward but his sword and lance proved useless against the knight
+concealed in metal. Shortly, this knight had also killed his second opponent
+and Ferdinand's soldiers were raising slogans in jubilation. The iron-clad
+knight raised his sword and made a small round. Then, standing, facing the
+Granada army, he waited for his next opponent.
 
 Naeem bin Ridwan moved forward to seek permission from Abul Hassan but was
 interrupted by a horseman who appeared from one side. His sweating horse
@@ -482,9 +483,9 @@ showed that he was coming from a far distance. Even his attire was different
 from that of Granada's soldiers. He wore a white robe over his body instead of
 an armor and wore a turban on his head instead of an aventail. Except for the
 eyes, his face was covered with a red veil. Moving forward from the ranks of
-the Granada's army, he halted his horse for a moment and sheathed his shining
+Granada's army, he halted his horse for a moment and sheathed his shining
 sword. The onlookers thought that he would attack using a lance but he pierced
-it in the ground too. Spectators on both sides were perplexed with his moves.
+it in the ground too. Spectators on both sides were perplexed by his moves.
 
 Suddenly, the masked man kicked forward his horse. The Christian, iron-clad
 knight charged forward brandishing his lance towards him but he dodged him and
@@ -497,10 +498,10 @@ his neck.
 This knight of Hispania, who was second to none in strength and bravery, who
 was loaded onto the horse with great difficulty by four men because of the
 heavy weapons, fell off his horse like a boulder. The other end of the rope
-was attack to the saddle of the masked man's horse. Granada's army laughed at
-the helplessness of Castile's iron man. The masked man quickly dragged him and
-after placing him at Abul Hassan's feet, took off his mask and said, "I bring
-you the glad tidings of victory at the Cordova front."
+was attached to the saddle of the masked man's horse. Granada's army laughed
+at the helplessness of Castile's iron man. The masked man quickly dragged him
+and after placing him at Abul Hassan's feet, took off his mask and said, "I
+bring you the glad tidings of victory at the Cordova front."
 
 Abul Hassan cried out joyfully, "Badr! I'm sure the message that you have
 brought is definitely good but compared to the victory my joy is more because
@@ -515,16 +516,16 @@ didn't you bring the army? Today is the decisive day."
 
 Badr replied, "Don't worry. They will arrive shortly."
 
-While raising the cry of "Allahu Akbar", Al-Zeghel said, "O Muslims! Today is
+While raising the cry of "Allahu Akbar," Al-Zeghel said, "O Muslims! Today is
 a blessed day for you. The army of Cordova has fled the battlefield and your
-Frontier Falcon has come here to help you."
+Frontier Falcon has come to help you."
 
 The soldiers raised slogans in jubilation as soon as they heard the news. Badr
 said to Al-Zeghel, "Forgive me but you have not conveyed the news completely.
 We did not give the army of Cordova an opportunity to flee. Almost all of it
 is lying in the field. Only five or six hundred soldiers might have escaped."
 
-Naeem raised the slogan of "Allahu Akbar", fixed the reins of his horse and
+Naeem raised the slogan of "Allahu Akbar," fixed the reins of his horse and
 said, "Owing to the happiness of the victory, I pledge to put fifteen of
 Castile's horsemen to death but I would like to use your lance for good luck."
 Saying this he handed over his lance to him and moved forward and grabbed Badr
@@ -562,7 +563,7 @@ his lance into the chest of a horseman who had approached for a duel. The
 Christian horseman fell off his horse but at the same time Naeem's head
 lowered in a state of becoming unconscious. Badr dashed his horse towards the
 tents of the wounded. A few young men took Naeem bin Ridwan inside after
-taking him off the horse.  
+taking him off the horse.
 
 Badr bin Mughira jumped off his horse and entered the tent. Bashir bin Hassan
 was busy dressing the injured but he immediately turned his attention towards
@@ -570,8 +571,8 @@ Naeem.
 
 Badr said, "Bashir, try to save him."
 
-After examining his pulse Bashir bin Hassan quickly opened his armor and after
-reexamining his pulse, looked towards Badr and shook his head.
+After examining his pulse, Bashir bin Hassan quickly opened his armor and
+after reexamining his pulse, looked towards Badr and shook his head.
 
 Badr said in a chocked voice, "Can't you do something?"
 
@@ -580,7 +581,7 @@ no less that a miracle. Looks as if some determination to complete a task is
 preventing the hand of death. He is gaining consciousness."
 
 "If he becomes conscious tell him that he has fulfilled his pledge." Saying
-this Badr bin Mughira dashed out of the tent, jumped and mounted his horse.
+this Badr bin Mughira dashed out of the tent, jumped, and mounted his horse.
 
 Moments later, on seeing traces of defeat in Ferdinand's army, Badr bin
 Mughira gathered the best trained horsemen and ordered them to get ready for a
@@ -592,11 +593,11 @@ around Abul Hassan, he dismounted his horse and prostrated. When he rose his
 eyes were filled with tears of gratitude. Abul Hassan looked here and there
 and then said, "Where is our Frontier Falcon?"
 
-Al-Zeghel replied, "He has taken-off with his warriors."
+Al-Zeghel replied, "He has taken off with his warriors."
 
 "Where?"
 
-"To give a chase to the fleeing army."
+"To give chase to the fleeing army."
 
 "We had asked not to. The soldiers are very exhausted."
 
@@ -609,24 +610,25 @@ army I would not have worried that much. I feel that the loss of even one of
 his men can't be compensated."
 
 Al-Zeghel said, "Don't worry. He knows his job well. He attacks his opponents
-like a lion and pounces on the retreaters like a falcon."
+like a lion and pounces on those who retreat like a falcon."
 
-Abul Hassan said, "We want to hear the entire details of the victory at
-Cordova's front. Abbas, you were with him? Do you think he had exaggerated
-just to raise the morale of the army?"
+Abul Hassan said, "We want to hear all the details of the victory at Cordova's
+front. Abbas, you were with him? Do you think he exaggerated just to raise the
+morale of the army?"
 
 Abbas was one of the commanders in the army of Granada. He said, "These events
-were such that they could only be believed by the eyes that have witnessed
-them but the ears might find them incredible to believe." Then, Abbas narrated
-the entire details of the battle. When he mentioned the feats of Mansour bin
-Ahmed, Abul Hassan said, "Had I known that Badr bin Mughira's quiver possessed
-such arrows, then, instead of now, I would have declared war a few years
-earlier."
+were such that they could only be believed by the eyes that had witnessed them
+but the ears might find them incredible to believe." Then, Abbas narrated all
+the details of the battle. When he mentioned the feats of Mansour bin Ahmed,
+Abul Hassan said, "Had I known that Badr bin Mughira's quiver possessed such
+arrows, then, instead of now, I would have declared war a few years earlier."
+
+<!-- TODO Check transliteration -->
 
 After resting for a night, the exhausted soldiers woke up at the sound of the
-Muazzin's Aathaan at dawn. Abul Hassan had taken a good sleep after a long
+Mu'athin's Aathān at dawn. Abul Hassan had taken a good sleep after a long
 time. When he came out of his tent for prayers, his first question to the
-guards was, "Has Badr bin Mughira arrived as yet?"
+guards was, "Has Badr bin Mughira arrived yet?"
 
 The guards responded in the negative.
 
@@ -643,7 +645,7 @@ seen on the horizon.
 
 Abul Hassan ordered a few horsemen to head in that direction.
 
-They returned after a while giving the news of the Frontier Falcon's return.
+They returned after a while giving the news of The Frontier Falcon's return.
 
 Al-Zeghel said, "Listen to another good news from me."
 
@@ -652,6 +654,6 @@ Abul Hassan said, "And what is that?"
 Al-Zeghel replied, "The Frontier Falcon is bringing a huge supply of booty
 along with him."
 
-On Abul Hassan's enquiry, the horsemen confirmed the fact that Badr bin
+On Abul Hassan's inquiry, the horsemen confirmed the fact that Badr bin
 Mughira is herding along a large stock of cattle. Besides goats and sheep
 there were several horses and mules loaded with grain.
